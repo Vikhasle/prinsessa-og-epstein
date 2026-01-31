@@ -72,7 +72,7 @@ def parse_first_email(text):
             break
         
         # If the epstein has sent the mail and we reach his disclaimer, we break:
-        if headers["From"].lower().find("epstein") != -1 and (line.lower().find("****************************************************") != -1 or line.lower().find("the information contained in this communication is") != -1):
+        if headers["From"].lower().find("epstein") != -1 and (line.lower().find("*****************************") != -1 or line.lower().find("the information contained in this communication is") != -1):
             break
 
         # If all header fields are found, the rest is content baby
@@ -90,7 +90,6 @@ emails = []
 
 for pdf_file in Path(PDF_DIR).glob("*.pdf"):
     with pdfplumber.open(pdf_file) as pdf:
-        print("Parsing ", pdf_file)
         full_text = "\n".join(page.extract_text() or "" for page in pdf.pages)
         email = parse_first_email(full_text)
 
@@ -98,17 +97,37 @@ for pdf_file in Path(PDF_DIR).glob("*.pdf"):
             #Add path to be used in md
             email["File"] = pdf_file
 
-            #Try to remove in-line mail replies:
+            #ungodly section for trying to remove in-line mail replies and signatures:
             if email["Content"]:
-                disclaimer_index = email["Content"].lower().find("the information contained in this communication is")
-                if disclaimer_index != -1:
-                    email["Content"] = email["Content"][:disclaimer_index]
+                # Remove all those stars in epsteins signature 
+                email["Content"].replace("*", "")
+                # Lets assume that kronprinsessen is the only norwegian her
+                if email["From"].lower().find("kronprinsessen") != -1 or email["From"].lower().find("h.k.h.") != -1:
+                    # Find the start of the "reply-section" of the mail
+                    reply_regex = r"Den.*?kl\..*?skrev"
+
+                # epstein is often the other one, he has a custom signature/disclaimer
+                else:
+                    disclaimer_index = email["Content"].lower().find("the information contained in this")
+                    if disclaimer_index != -1:
+                        email["Content"] = email["Content"][:disclaimer_index]
+
+                        # The disclaimer sometimes begins with please note, so remove this as well.
+                        please_note_index = email["Content"].lower().find("please note")
+                        if please_note_index != -1:
+                            email["Content"] = email["Content"][:please_note_index]
+
+                    reply_regex = r"\bOn\s+.*?\bwrote:?\b"
+
+                if reply_regex:
+                    match = re.search(reply_regex, email["Content"], re.IGNORECASE)
+                    if match:
+                        email["Content"] = email["Content"][:match.span(0)[0]]
 
             emails.append(email)
 
     ## Sort newest first:
     sorted_emails = sorted(emails, key=lambda email: email["Sent"], reverse=True);
-
 
 # Save CSV
 with open(CSV_FILE, "w", newline="", encoding="utf-8") as f:
@@ -116,7 +135,5 @@ with open(CSV_FILE, "w", newline="", encoding="utf-8") as f:
     writer.writeheader()
     for email in sorted_emails:
         writer.writerow(email)
-
-
 
 print(f"Parsed {len(sorted_emails)} emails into {CSV_FILE}")
