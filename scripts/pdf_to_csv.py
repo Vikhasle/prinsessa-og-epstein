@@ -88,7 +88,7 @@ def parse_first_email(text):
 # Process PDFs
 emails = []
 
-for pdf_file in Path(PDF_DIR).glob("*.pdf"):
+for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
     with pdfplumber.open(pdf_file) as pdf:
         full_text = "\n".join(page.extract_text() or "" for page in pdf.pages)
         email = parse_first_email(full_text)
