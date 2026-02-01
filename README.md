@@ -98,6 +98,48 @@ What number can I reach u on??
 
 ---
 
+### 2020-07-22T10:32:13+00:00
+
+**From:** Bulletin Intelligence
+
+**To:** FBI@BulletinIntelligence.com
+
+Subject: FW: [EXTERNAL EMAIL] - FBI Public Affairs News Briefing Wednesday, July
+
+Subject: [EXTERNAL EMAIL] - FBI Public Affairs News Briefing Wednesday, July 22, 2020 Mobile version and searchable archives available at fbi.bulletinintelligence.com. FBI News Briefing TO: THE DIRECTOR AND SENIOR STAFF DATE: WEDNESDAY, JULY 22, 2020 6:30 AM EDT TODAY'S TABLE OF CONTENTS LEADING THE NEWS • FBI Arrests Ohio House Speaker In Corruption Probe. PROTESTS • ABC News/Washington Post Poll: Most Oppose Defunding Police, Removing Statues. • White House Calls Prosecution Of McCloskeys "Extreme Abuse Of Power." • Trump: "The Game Is Over For Me" If Players Kneel During National Anthem. • Minneapolis Police See Surge Of Departures In Wake Of Floyd Protests. • Portland Protests Continue As Trump Considers Sending Federal Officers To Chicago. • Police Officers Attacked As Seattle Protests Continue. • Teens Charged With Terrorism Following Oklahoma City Protests. • Senate Blocks Push To Limit Military Gear For Police. • Atlantic Updates Essay
+
+[PDF](pdfs/mette/EFTA01658203.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01658203.pdf)
+
+---
+
+### 2020-07-22T02:31:00+00:00
+
+**From:** Bulletin Intelligence
+
+**To:** FBI@BulletinIntelligence.com
+
+Subject: (EXTERNAL EMAIL] - FBI Public Affairs News Briefing Wednesday, July 22, 2020
+
+Mobile version and searchable archives available at fbi.bulletinintellicience.com. TO : THE DIRECTOR AND SENIOR STAFF DATE : WEDNESDAY, JULY 22 , 2020 6 : 30 AM EDT TODAY'S TABLE OF CONTENTS LEADING THE NEWS • FBI Arrests Ohio House Speaker In Corruption Probe. PROTESTS EFTA00135626 • ABC News/Washington Post Poll: Most Oppose Defunding Police, Removing Statues. • White House Calls Prosecution Of McCloskeys "Extreme Abuse Of Power." • Trump: "The Game Is Over For Me" If Players Kneel During National Anthem. • Minneapolis Police See Surge Of Departures In Wake Of Floyd Protests. • Portland Protests Continue As Trump Considers Sending Federal Officers To Chicago. • Police Officers Attacked As Seattle Protests Continue. • Teens Charged With Terrorism Following Oklahoma City Protests. • Senate Blocks Push To Limit Military Gear For Police. • Atlantic Updates Essay
+
+[PDF](pdfs/mette/EFTA00135626.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00135626.pdf)
+
+---
+
+### 2019-12-03T19:06:45+00:00
+
+**From:** (NY) (FBI)" ..tj
+
+**To:** c'iMMICHr> cial.r. (CH) (FBI)
+
+Subject: FW: FW: Question about Jeffrey Epstein and
+
+Importance: Normal I miss those days too brother, FYI still wears that old rain coat. No worries unless there's anything we need to know, the case is getting more attention in Europe now than here. Hope all is well buddy. SSA- FBI New York
+
+[PDF](pdfs/mette/EFTA00147955.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147955.pdf)
+
+---
+
 ### 2019-12-03T19:06:45+00:00
 
 **From:** (NY) (FBI)" ..tj
@@ -109,6 +151,34 @@ Subject: FW: FW: Question about Jeffrey Epstein and
 Importance: Normal I miss those days too brother, FYI still wears that old rain coat. No worries unless there's anything we need to know, the case is getting more attention in Europe now than here. Hope all is well buddy. SSA- FBI New York
 
 [PDF](pdfs/mette-marit/EFTA00147955.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147955.pdf)
+
+---
+
+### 2019-12-03T18:36:00+00:00
+
+**From:** ' . (CH) (FBI)
+
+**To:** :1.1Inl irral(CH) (FBI)
+
+Subject: FW: FW: Question about Jeffrey Epstein and
+
+Importance: Normal how goes it. A "tip" came into our Stockholm suboffice. Turned out it was a reporter. Documented in Sentinel. I can give more clarity
+
+[PDF](pdfs/mette/EFTA00147946-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147946-1.pdf)
+
+---
+
+### 2019-12-03T18:36:00+00:00
+
+**From:** ' . (CH) (FBI)
+
+**To:** :1.1Inl irral(CH) (FBI)
+
+Subject: FW: FW: Question about Jeffrey Epstein and
+
+Importance: Normal how goes it. A "tip" came into our Stockholm suboffice. Turned out it was a reporter. Documented in Sentinel. I can give more clarity
+
+[PDF](pdfs/mette/EFTA00147946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147946.pdf)
 
 ---
 
@@ -136,7 +206,35 @@ Subject: FW: FW: Question about Jeffrey Epstein and
 
 Importance: Normal Gents, Do you have any information regarding the inquiry below? The media is reporting "anonymous FBI agent at the American embassy in Stockholm" claims the FBI is interested in the Crown Princess and another Norwegian citizen. Certainly if anyone in Norway has pertinent information regarding the case we would be interested, however, we are unaware of any current interest in Norway. Let me know if anything comes up. Thanks, SSA Squad C-20 Crimes Against Children/Human Trafficking FBI New York office mobile From: (NY) (FBI) Sent: Tuesday, December 03, 2019 11:57 AM To: . (NY) (FBI) c >; (NY) (FBI) •:: > Subject: Fwd: FW: Question about Jeffrey Epstein and In? If you dont know anything about it, hit up the ALAT to see if their office put put anything or is engaged with LE there.
 
+[PDF](pdfs/mette/EFTA00147994.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147994.pdf)
+
+---
+
+### 2019-12-03T18:32:35+00:00
+
+**From:** (NY) (FBI)" <I
+
+**To:** '1 L lir>all) (FBI)
+
+Subject: FW: FW: Question about Jeffrey Epstein and
+
+Importance: Normal Gents, Do you have any information regarding the inquiry below? The media is reporting "anonymous FBI agent at the American embassy in Stockholm" claims the FBI is interested in the Crown Princess and another Norwegian citizen. Certainly if anyone in Norway has pertinent information regarding the case we would be interested, however, we are unaware of any current interest in Norway. Let me know if anything comes up. Thanks, SSA Squad C-20 Crimes Against Children/Human Trafficking FBI New York office mobile From: (NY) (FBI) Sent: Tuesday, December 03, 2019 11:57 AM To: . (NY) (FBI) c >; (NY) (FBI) •:: > Subject: Fwd: FW: Question about Jeffrey Epstein and In? If you dont know anything about it, hit up the ALAT to see if their office put put anything or is engaged with LE there.
+
 [PDF](pdfs/mette-marit/EFTA00147994.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147994.pdf)
+
+---
+
+### 2019-12-03T18:26:26+00:00
+
+**From:** (NY) (FBI)" ctl
+
+**To:** 'a(NY) (FBI)" <I . (NY) (FBI)
+
+Subject: RE: FW: Question about Jeffrey Epstein and
+
+I mportance: Normal The case team is not aware of any connection to Norway or interest in these individuals. I will reach out to Legat Copenhagen. From: (NY) (FBI) Sent: Tuesday, December 03, 2019 11:57 AM To: (NY) (FBI) c >; (NY) (FBI) Subject: Fwd: FW: Question about Jeffrey Epstein and In? If you dont know anything about it, hit up the ALAT to see if their office put put anything or is engaged with LE there.
+
+[PDF](pdfs/mette/EFTA00147996.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147996.pdf)
 
 ---
 
@@ -164,7 +262,35 @@ Subject: FW: FW: Question about Jeffrey Epstein and
 
 Sent: Tuesday, December 03, 2019 11:57 AM To: (NY) (FBI) c li>; (NY) (FBI) Subject: Fwd: FW: Question about Jeffrey Epstein and EL If you dont know anything about it, hit up the ALAT to see if their office put put anything or is engaged with LE there.
 
+[PDF](pdfs/mette/EFTA00147998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147998.pdf)
+
+---
+
+### 2019-12-03T17:44:47+00:00
+
+**From:** (NY) (FBI)
+
+**To:** :a. NY) (FBI)" < I' (NY) (OGA)
+
+Subject: FW: FW: Question about Jeffrey Epstein and
+
+Sent: Tuesday, December 03, 2019 11:57 AM To: (NY) (FBI) c li>; (NY) (FBI) Subject: Fwd: FW: Question about Jeffrey Epstein and EL If you dont know anything about it, hit up the ALAT to see if their office put put anything or is engaged with LE there.
+
 [PDF](pdfs/mette-marit/EFTA00147998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00147998.pdf)
+
+---
+
+### 2019-12-03T16:57:03+00:00
+
+**From:** ' (NY) (FBI)" <
+
+**To:** 'MINICY) (FBI)" >' (NY) (FBI)
+
+Subject: Fwd: FW: Question about Jeffrey Epstein and
+
+Importance: Normal M? If you dont know anything about it, hit up the ALAT to see if their office put put anything or is engaged with LE there.
+
+[PDF](pdfs/mette/EFTA00148000.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148000.pdf)
 
 ---
 
@@ -192,7 +318,119 @@ Subject: Fwd: FW: Question about Jeffrey Epstein and
 
 Importance: Normal See below. Forwarded message From: NPO f"r Date: Dec 3, 2019 9:16 AM Subject: FW: uestion about Jeffrey Epstein and To: ' . (OPA) (FBI)" . (NY) (FBI)" Cc: National Press Office Federal Bureau of Investigation Washington, DC 20535 I @FBI From: Runa Fjellanger I Sent: Tuesday, December 03, 2019 2:28 AM To: NPO c > Subject: Question about Jeffrey Epstein and To whom it may concern, I'm contacting you on behalf of VG, Norway's biggest newspaper, to enquire about a quote which is attributed to an anonymous FBI agent at the American embassy in Stockholm. According to the Norwegian newspaper Dagbladet/Se og Her, the FBI agent says: "FBI wants to speak with . We're still trying to trace information about Epstein". According to flight logs travelled with Jeffalpaein's private jet several times, and we're wondering if it is correct that the FBI wants to speak with in connection to Epstein? If so: Why? What information are you hoping to discover? Have you already contacted Are there any other Norwegian citizens or residents you wish to contact? Has there been any contact between the FBI or other American agencies and the Norwe ian overnment, Norwegian Police Security Service or other agencies concerning Jeffrey Epstein, or Crown Princess Mette-Marit? If you could please get back to me at your earliest convenience, I would greatly appreciate it. Best regards Runa Fjellanger EFTA00148002 EFTA00148003
 
+[PDF](pdfs/mette/EFTA00148002.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148002.pdf)
+
+---
+
+### 2019-12-03T16:45:19+00:00
+
+**From:** ' (NY) (FBI)
+
+**To:** I (NY) (FBI)" I (NY) (FBI)
+
+Subject: Fwd: FW: Question about Jeffrey Epstein and
+
+Importance: Normal See below. Forwarded message From: NPO f"r Date: Dec 3, 2019 9:16 AM Subject: FW: uestion about Jeffrey Epstein and To: ' . (OPA) (FBI)" . (NY) (FBI)" Cc: National Press Office Federal Bureau of Investigation Washington, DC 20535 I @FBI From: Runa Fjellanger I Sent: Tuesday, December 03, 2019 2:28 AM To: NPO c > Subject: Question about Jeffrey Epstein and To whom it may concern, I'm contacting you on behalf of VG, Norway's biggest newspaper, to enquire about a quote which is attributed to an anonymous FBI agent at the American embassy in Stockholm. According to the Norwegian newspaper Dagbladet/Se og Her, the FBI agent says: "FBI wants to speak with . We're still trying to trace information about Epstein". According to flight logs travelled with Jeffalpaein's private jet several times, and we're wondering if it is correct that the FBI wants to speak with in connection to Epstein? If so: Why? What information are you hoping to discover? Have you already contacted Are there any other Norwegian citizens or residents you wish to contact? Has there been any contact between the FBI or other American agencies and the Norwe ian overnment, Norwegian Police Security Service or other agencies concerning Jeffrey Epstein, or Crown Princess Mette-Marit? If you could please get back to me at your earliest convenience, I would greatly appreciate it. Best regards Runa Fjellanger EFTA00148002 EFTA00148003
+
 [PDF](pdfs/mette-marit/EFTA00148002.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00148002.pdf)
+
+---
+
+### 2018-12-25T18:43:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Boris Nikolic
+
+Subject: RE: Re:
+
+Subject: Re: did nt your eyes come after bill
+
+[PDF](pdfs/mette/EFTA02609219.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02609219.pdf)
+
+---
+
+### 2018-12-25T18:42:42+00:00
+
+**From:** Boris Nikolic
+
+**To:** J <jeevacation(ksmail.com>
+
+Subject: RE: Re:
+
+No. Eyes started
+
+[PDF](pdfs/mette/EFTA01010430.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01010430.pdf)
+
+---
+
+### 2018-01-08T19:47:00+00:00
+
+**From:** jeffrey E. <jeevacation@gmail.com>
+
+**To:** jeffrey epstein
+
+Subject: Fwd: radical breakthrough
+
+kashoggi, bunker hunt. george mitchell . wayne owens= prince andrew. princess mette . princes sophie, p=incess alexandra . bill richardson. bill cl=nton. hamad bun jasem. donalad trup. gov mapp. governoe young. =governoe king.. woody allen . morgain fairchild. mike ovitz.. marvin day=s, herb segal. jimmy cyane, jes staleyk , rothchild. agn=lli. . karim. prince mbs, mbr, sultan.=anas.. jabor, general clarke. , watson minsky church , =illis.. ramascharn, golenbrg, hauser, kosslym, da= gilbert. larry summers. henry rosysky, steven j gould, . murray gem=an, gerffrey west.. haley berry, joan severane. , tom pritzke=, leon balck, m.. woody allen, jacuwe lang. , miro. Forwarded message From: jeffrey E. <jeevacation@gmail.com> Date: Mo=, Jan 8, 2018 at 2:19 PM Subject: Fwd: radical breakthrough To: jeff=ey epstein <jeevacation@gmail.=om <mailto:jeevacation@gmail.com» 1 beards and long hair , are meant to catch and hold sm=lls. ? 2. visival system =AO cohernant image. . fft . equivament. . =AO for sound. making a coherentt sound. . ? =C2 does it make a coeherent concept.? 3. a mental object ie mobject. . =action on mental objects.. ? 5. writing=is unnatural. assymentrc speed. . not good f=r eveeryone. linear. slow. rule based. . 6.=C2 nose test. telepathy. . 8. ideas or brain connections =C2 as knots. slices. tangles links loops. =C2 is space knottted. and the speed of light =AO simply mean one time around . obviously a constant. 9.. intelltignce on surface , needs larger surface a=ea. hence replication.. 10. does the eye=tranmsit information. 11/ fear is pain in=the future.. 12. music is horizontal and vertical in=oramtion ? melody prosgy harmony, all amials. c=n it be looked at to reengineer the brain. harmony FFT. sympho=ic learning. EFTA_R1_01690035 EFTA02540965 13 individulal =AO vs the group ? ? 14. all senses=act in a narrow band. survival. fitness. . 15.=C2 drive motivation. goal? 16. deception and=its rote in biollogy. 17 power. financai=. physical mental.. 18. power lawws and probab=lity. gravity.? 19. plants.=C2 communication. surface area. similairy tohumnas.=C2 . do we get plant diseases. ? 20. =biolgy , np complete? 21 sen=e calculation matrix. , sound receiver and t=ansionni . gesture... tounch . temp.pressure. location= sight. frequnecey. ( temp_ location. movement. =AO smell. transmit. recieve.. volatile. amplitude.. disgust? =C2 is location a sense. near food? direction. to food= ? 22 . derivation of the power Ilaws. 23 power of words . 24. qu=stions = Al to the minus 1 25. b=lief , survival. meachinsim for some.. placebo. . 26. =AO taste? food? kissing? 27 . mortaltiy t=bles. why. points on the distribution. witte=enstein.. 26. =oney. agreements. debt pwer. value wealth. cost. =7 dreaming all day long 28 only 6 senres? =/div> 29. micro bioome anti biotics. recall s=ell. ? psyche. memory etc. 30 / eye tra=smission 31. numbers , not good for many =hings 32. luck what is it . mortal=ty tables 33 signal processing.. noise. excription <=iv> gromov deepak. church. martin. hopkins.danny, jos=ha watson, chomsky... thiel.hoffman, sinofsky terje. ehu=. bannon. barrak. ruemmler. reid. karp. . woody, blaine.=cavett. sultan jabor raafat. anas . jo=, reid. wolf. lang.. \ deepakbarnaby ben masha. , melz eva m=sc. bernie. rony , merill. attia, chen, fark=s leon . membrane computing. =FFT. energy to deconstruct.. harmony.. . knots. . =AO the explainer. ( survival ) . matrix algebra, - sense=. face /image recogniton. / focus, accupnutre presure =assage. pain. placebo illusions, visula aurel.. honest =ignals. 2 EFTA_R1_01690036 EFTA02540966 evolution. resource. rate of loss.=C2 . payoff matrix.. cooperation. stochastic games. =AO
+
+[PDF](pdfs/mette/EFTA02540965.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02540965.pdf)
+
+---
+
+### 2017-10-10T14:06:04+00:00
+
+**From:** GalleriesNow.net Newsletter" <newsletter@galleriesnow.net>
+
+**To:** jeevacation@gmail.com
+
+Subject: Events, Openings, Closings and Auctions 10-17 Oct 2017
+
+;ItalleriesNow 10 Oct 2017 EFTA00645788 giget the ArtPassport app for the latest 360° exhibitions events Tue 10 Mamco, Geneva: new exhibition previews Tornabuoni Art, London: Reading de Chirico panel discussion at the Courtauld Institute Delfina Foundation, London: New Museums and Collections talk Wed 11 Annka Kultys Gallery, London: !Mediengruppe Bitnik preview kamel mennour, Paris: Daniel Buren preview Thu 12 Galerie Forsblom, Helsinki: Li Gang Nature Morte? and Kaarlo Stauffer previews Sat 14 Modern Art Oxford: Rose Finn-Kelcey tour Sothebys, London: The Rise of Design talk EFTA00645789 kamel mennour. Paris: Camille Henrot preview Sun 15 Galleria Continua Les Moulins, Boissy-le-Chatel: 10 Years of Galleria Continua in France exhibitions opening Berlin Aurel Scheibler: Alice Neel: The Great Society KW Institute for Contemporary Art: Lucy Skaer Boissy-le-Chatel Galleria Continua Les Moulins: 10 Years of Galleria Continua in France (2007 - 2017) - preview Sun. 15 Oct Chicago MCA Chicago: Felix Geneva Mamco: General Idea: Photographs (1969-1982) - exhibition extended conceived in close collaboration with founding member AA Bronson, early photographic works by the Canadian collective that borrow from Minimal, Conceptual and Land art Mamco: William Leavitt: Retrospective - preview Tue, 10 Oct in Leavitt's first European retrospective, historic works, installations, photo-compositions, paintings. drawings from the 1980s-1990s and major recent installations Mamco: Narrative Art - preview Tue, 10 Oct an exhibition exploring the movement which emerged in the early 1970s characterised by the use of photography for documentary purposes Mamco: Fictional Artists - preview Tue, 10 Oct works by artists who remain hidden behind pseudonyms or heteronyms - organised by David Lemaire Mamco: Gordon Matta-Clark: Food - preview Tue, 10 Oct an exhibition exploring the restaurant "FOOD" which opened in New York in 1971 establishing itself as a meeting place which provided food and work for artists Mamco: Martha Roster: House Beautiful: Bringing the War Home - preview Tue, 10 Oct photomontages produced between 1967 and 1972 which bring together two opposing worlds: modern interiors of security and good taste and scenes from the Vietnam War Mamco: Adrian Piper: The Mythic Being - preview Tue, 10 Oct original black and white photographs by the analytical philosopher and major figure of first-generation American Conceptual art Mamco: Allen Ruppersberg: The Never Ending Book. Part One: The Old Poems ( For My Mother) 2007 - preview Tue, 10 Oct EFTA00645790 works by a pivotal figure of the Californian Conceptual art scene exploring the ambiguous relationship between the intimate and the public via a literally infinite book Helsinki Galerie Forsblom: Li Gang: Fictional Symbol - preview Thu, 12 Oct Galerie Forsblom: Nature Mode? - preview Thu, 12 Oct Galerie Forsblom: Kaarlo Stauffer: Good Earth - preview Thu, 12 Oct London Annka Kultys Gallery: !Mediengruppe Bitnik: Are You Online Now? - preview Wed, 11 Oct a new five-channel video installation exploring the relationship between human and machine. virtual intimacy and the disruptive use of digital platforms Whitechapel Gallery: Artists' Film International: Gabriela Golder and Wojciech Bakowski London auctions Sotheby's: Art For Grenfell Mon, 16 Oct (viewing 12-16 Oct) Design: Living in a Material World Tue, 17 Oct (viewing 13-17 Oct) Lustenau Hausler Contemporary Lustenau: S0bastien de Ganay: Fold on Fold - opens Fri, 13 Oct Mumbai Chemould Prescott Road: Sooni Taraporevala: Home in the City: Bombay 1977 to Mumbai 2017 - preview Fri, 13 Oct New York Anton Kern Gallery: Alessandro Pessoli: Against Me Derek Eller Gallery: Whiting Tennis Lehmann Maupin 22nd and Chrystie St: Gilbert & George THE BEARD PICTURES P.P.O.W: Robin F. Williams: Your Good Taste Is Showing Paula Cooper Gallery, 521 W. 21st St: Douglas Huebler The Drawing Center: Judith Bernstein: Cabinet of Horrors The Met Breuer: Modernism on the Ganges: Raghubir Singh Photographs Nimes Carr& d'Art - Musde d'art contemporain de Nimes: Supports/Surfaces. The Beginning 1966 - 1970 Paris Almine Rech Gallery: George Condo: Life is Worth Living - preview Sat, 14 Oct paintings and sculpture made while Condo was living in Paris in the late '80s and early '90s in conversation with his most recent works EFTA00645791 Fondation Louis Vuitton: Etre moderne: Le MoMA à Paris Jeu de Paume: Ali Kazma: Subterranean Jeu de Paume: Albert Renger-Patzsch: Things Jeu de Paume: Satellite 10 programme: Steffani Jemison. Sensus Plenior kamel mennour, r. du Pont de Lodi: Camille Henrot: Testa di Legno - preview Sat, 14 Oct kamel mennour, r. Saint-André des arts: Daniel Buren: Pyramidal hauts-reliefs travaux in situ et situés 2017 - preview Wed, 11 Oct Musée Picasso Paris: Picasso 1932 Perrotin, r. de Turenne: Julio Le Parc: Bifurcations Perrotin, r. de Turenne: Daniel Arsham: The Angle of Repose Stockholm Galleri Magnus Karlsson: Mette Bjarnberg: Power Play - preview Sat, 14 Oct Tokyo Taka Ishii Gallery Photography / Film: Armando Salas Portugal: Casa Barragàn Zürich Hauser & Wirth Zürich: Bernd and Hilla Becher Zürich auctions Christie's: Swiss Art Tue, 17 Oct (viewing 14-17 Oct) leMarian Goodman Almine Rech WiThaddaeus Ropac lietLisa Kandlhofer a 2E/avid ;1Eva Presenhuber Zwimer Modern Art Oxford Pjftilorena di Luna exhibitions closing Basel Kunstmuseum Basel: Richard Serra: Films and Videotapes EFTA00645792 Hove Morena di Luna: Paulo Nimer Pjota - closes Sun, 15 Oct in Morena di Luna's inaugural exhibition, Pjota's new works are an allegorical journey referring to everyday objects, vernacular architecture and street life Johannesburg Goodman Gallery Johannesburg: Kudzanai Chiurai: We Live in Silence London Marian Goodman Gallery: Amar Kanwar: Such a Morning - closes Sat, 14 Oct Kan war's multimedia works explore the politics of power, violence, sexuality and justice, characterised by his distinctly poetic approach to the social and political Naples Museo MADRE: Stephen Prina: english for foreigners New York Almine Rech Gallery New York: Julian Schnabel: Re-Reading - closes Sat, 14 Oct recent works by an artist whose practice transcends genres or media, inviting viewers to become "readers" of his visual and literary dialogue David Zwirner 19th St: Suzan Frecon: recent oil paintings - closes Sat, 14 Oct Fredericks & Freiser: Mark Thomas Gibson: Early Retirement James Cohan Gallery: A Line Can Go Anywhere Marian Goodman Gallery, New York: Tony Cragg: Recent Sculptures Mitchell-Innes & Nash, 26th St: Amanda Ross-Ho: MY PEN IS HUGE Paula Cooper Gallery, 534 W. 21st St: Carey Young Sikkema Jenkins & Co: Kara Walker: Sikkema Jenkins and Co. is Compelled to present The most Astounding and Important Painting show of the fall Art Show viewing season! Oxford Modern Art Oxford: Rose Finn-Kelcey: Life Belief and Beyond - closes Sun, 15 Oct a central figure in the feminist art scene. Finn-Kelcey's first posthumous exhibition explores power, performance, spirituality and the self with a characteristic dry wit Paris Bugada & Cargnel: Lise Stoufflet Romain Vicari: The Smell of the Moon Galerie Frank Elbaz: An Marcopoulos: Machine Galerie Jocelyn Wolff: Francisco Tropa: La moustache cachee dans la barbe Galerie Thaddaeus Ropac, Marais: Wolfgang Laib: The Beginning of Something Else - closes Sat, 14 Oct a central installation and a frieze of twenty-eight large drawings profoundly connected to Laib's experiences in India and Southeast Asia Galerie Thaddaeus Ropac, Pantin: D0jeuner sur l'herbe - closes Wed, 11 Oct EFTA00645793 a group exhibition which explores notions of lingering and idling, using the landscape genre as a way to capture a contemporary state of being Vienna Galerie Lisa Kandlhofer: Project Room. Grear Patterson: Lucky Charm - closes Sat, 14 Oct new works which refine the American artist's previous examinations of sunsets Galerie Lisa Kandlhofer: Keith Coventry: Tabula Rasa - closes Sat, 14 Oct in his first solo exhibition in Austria, the British artist continues his ongoing exploration of the ruins of modernism Zurich Galerie Eva Presenhuber, Maag Areal: Steven Shearer: Printed Works - closes Sat, 14 Oct works which recontextualise rebellious, ephemeral culture using images from Shearer's archive of '70s fanzines, home-made albums and amateur photography from the internet RGalleriesNow For information on how to participate please email applications@galleriesnow.net - and for advertising enquiries, email advertising@galleriesnow.net. 5 Vigo St. London W15 3118 follow us on: twitter - facebook instaqram All images © the gallery and the artist(s) Unsubscribe - Sign up EFTA00645794
+
+[PDF](pdfs/mette/EFTA00645788.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00645788.pdf)
+
+---
+
+### 2017-03-31T18:02:27+00:00
+
+**From:** Linda Pinto
+
+**To:** E. Jeffrey" <Jeevacabon@gmad.com>
+
+Subject: Fwd: Marathonienne 6M
+
+Inline-Images: 57AF3A37-B7B0-4764-9BE8-2B88A1FFACE4[1].png; 57AF3A37-B7B0-4764-9BE8- 2B88AIFFACE4[4].png; 57AF3A37-B7B0-4764-9BE8-2B88A1FFACE4[4](1).png; 57AF3A37-B7B0-4764-9BE8-2B88A1FFACE4[1](1).png; Marathonienne_Hiquilyjpg You have the sculpture and the address LINDA PINTO Debut du message transfers : Expediteur: Stephane Zalejsk Date: 31 mars 2017 a 18:17:42 UTC+2 Destinataire: Mme Pinto Linda Objet: TR : Marathonienne 6 Bonne soiree ;) Biz Stephane Stephane Zalejski Project Manager Debut du message transfers : Expediteur: Lelouch Date: 29 mars 2017 a 11:34:57 UTC+2 Destinataire: Stephane Zalejski Objet: FW: Marathonienne 6M1 Cher Monsieur, Veuillez trouver ci joint un exemple de Marathonienne de 6,20 M, la patine ici est differente. Je me liens a votre entiere disposition tors du prochain sejour Parisien de votre client. EFTA00682164 Bien à vous Martin Jalabert PS: ci-dessous notre dernière échange concernant les Marathoniennes de Philippe HIQUILY. De : Lelouch Date : samedi 18 mars 2017 13:41 : Stephane Zalejski Objet : Marathonienne bM Cher Stéphane, J'ai essayé de vous joindre hier. Je vous confirme le prix de 135 000 € pour une Marathonienne de 6,20 mètre, je vous indique qu'il faudra un acompte à la commande pour déclencher la fabrication Et compte tenu de la taille de l'objet, il faudra s'organiser pour que l'enlèvement se fasse rapidement une fois la sculpture terminée. Le délai de fabrication sera d'environ 8 à 10 semaines. J'attends votre retour, Quand à la Marathonienne de 210 cm de hauteur, je la récupère courant de la semaine prochaine. Voulez-vous que je vous la mette en réserve pour votre client? Je devrais être à Paris lundi dans l'après midi mais reste joignable sur mon portable quand vous voulez. Bien à vous Jean-Marc Lelouch EFTA00682165 ;1'1o go EFTA00682166
+
+[PDF](pdfs/mette/EFTA00682164.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00682164.pdf)
+
+---
+
+### 2014-10-26T20:51:46+00:00
+
+**From:** A. de Rothschild" <1
+
+**To:** Jeffrey E." <jeevacation@grnail.com>
+
+Subject: Re: le TEMPS SAMEDI
+
+I agree. And I think writing this letter will worsen their case Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA00693171.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693171.pdf)
+
+---
+
+### 2014-10-26T17:48:11+00:00
+
+**From:** A. de Rothschild
+
+**To:** Epstein Jeffrey
+
+Subject: Fwd: le TEMPS SAMEDI
+
+Hi Jeff , this article was published saturday in the swiss press- the letter written by 72 bks from cat2 to the DoJ i m sure Kathy knows about it Sent from my iPhone Begin fonvarded message: From: FIEVET Emmanuel Date: 26 octobre 2014 18:42:57 UTC+1 To: "A. de Rothschild" Subject: le TEMPS SAMEDI Ce que les banques suisses veulent obtenir de Washington Alexis Favre 73 banques suisses inscrites en catégorie 2 ont écrit au Ministère américain de la justice. Un front uni contre des exigences trop strictes. Inventaire de leurs requêtes Le ton est courtois, mais le message des banques suisses en délicatesse avec le fisc américain est clair: le degré de coopération qu'attend l'Oncle Sam de leur part est par trop excessif. Comme l'a révélé jeudi l'agence Bloomberg, les avocats américains de 73 banques suisses inscrites en catégorie 2 du programme américain de régularisation fiscale ont écrit au Ministère américain de la justice (DoJ) pour faire part de leurs doléances quant aux modalités prévues par le projet de Non-prosecution agreement (NPA) qui leur a été soumis il y a quelques semaines. Proposé aux banques qui pensent avoir pu violer le droit américain en hébergeant des clients non déclarés, ce modèle d'accord dresse la liste des conditions à remplir — autant d'exigences de coopération — pour que le DoJ renonce aux poursuites pénales (LT du 14.10.2014). Dans une lettre de 11 pages, datée du 21 octobre — dont Le Temps a obtenu copie —, 18 cabinets d'avocats américains s'adressent à Thomas J. Sawyer, responsable des litiges au DoJ, pour le compte des banques qu'ils représentent. Le document fait l'inventaire détaillé des problèmes que pose le modèle d'accord, considérés comme des «obstacles substantiels» à la collaboration des banques. Argument de fond: en l'état, le modèle de NPA s'écarte des conditions prévues par le programme négocié en 2013. Parmi les 12 requêtes précises d'amendements que formulent les banques — assorties de six propositions de clarification, de reformulation ou d'ajouts - plusieurs points semblent cruciaux. En premier lieu, les banques contestent l'exigence de «coopération complète avec le DoJ, avec le fisc américain (IRS) et avec toute autre autorité de poursuite, domestique ou étrangère, désignée par le département». Pour les banques, «cette exigence [...] transforme un programme spécifiquement consacré à des questions fiscales américaines en un accord de coopération global, sans aucun garde-fou ni garantie de considération». Dans la même logique, le modèle de NPA prévoit que les informations, témoignages, documents et autres éléments que les banques seraient amenées à fournir au DoJ puissent être transmis à «d'autres autorités gouvernementales, américaines ou étrangères». Les banques s'y opposent en demandant que ces informations ne puissent être transmises qu'aux seules autorités fédérales américaines. Autre point saillant, les banques veulent s'assurer que leur participation au programme du DoJ les met définitivement à l'abri de poursuites ultérieures par l'IRS. Or, constatent-elles, cette assurance ne figure pas dans le texte. Aussi demandent-elles que le NPA soit assorti «d'une lettre dans laquelle l'IRS assure qu'il n'a EFTA00693165 pas l'intention d'engager des actions separees contre les banques» qui se conforment aux conditions du NPA. Les banques remarquent egalement que l'accord qu'on leur propose ne lie que le departement fiscal (Tax Division) du DoJ. Elles demandent donc que le terme «Tax Division» soit remplace par «DoJ», de maniere a ce que la garantie de non-poursuites soit accord& aux banques qui cooperent par la justice federale americaine dans son ensemble, et non par sa seule antenne fiscale. En l'etat, le modele de NPA exige encore que les banques communiquent les informations, liees au differend fiscal, qui concernent leurs activites propres, mais aussi celles de «leur maison mere et de leurs filiales». Qui plus est, elles seraient tenues d'informer le DoJ de toute procedure administrative ou civile ouverte, oil que ce soit dans le monde, contre elles, contre leur maison mere ou leurs filiales, portant sur des soupcons de fraude ou de corruption. Exclu, ecrivent les banques: «Le programme ne concerne que les banques situees en Suisse et les infractions fiscales ou portant sur des transactions monetaires.» Elles demandent done que le modele de NPA soit modifie en consequence. Selon les termes de l'accord propose, les banques seraient non seulement tenues de s'engager a fermer, dans un delai de deux ans, les comptes des contribuables americains «recalcitrants» (ceux qui refusent de se declarer au fisc), mais aussi les comptes dormants (dont on ne peut pas joindre le titulaire). Impossible, protestent les banques, par definition, une banque n'a pas la possibilite de contacter le titulaire d'un compte dormant, ni celle de transferer ou de restituer les fonds a leur titulaire». Elles demandent done que cette exigence disparaisse pour les comptes dormants. Parini les requetes qu'il est impossible de lister ici de maniere exhaustive, trois exigences paraissent encore essentielles. Pour les banques, it doit titre clairement precise dans l'accord qu'elles ne pourront fournir toutes les informations qu'on leur demande sur leurs affaires impliquant des contribuables americains que «sous reserve du droit applicable». Les banques demandent aussi que l'accord comprenne une date butoir au-dela de laquelle leurs obligations de cooperation s'eteindront, et proposent un delai de deux ans apres la conclusion de l'accord. Enfin, les banques veulent qu'il soit etabli noir sur blanc que, le cas echeant, le paiement de penalites mette fin a toutes reclamations pecuniaires ulterieures. «Reste une question, conclut un specialiste proche du dossier. Les Americains accepteront-ils de ceder? Yen doute. Its ne se sont pas montres tres conciliants pour l'instant. Et dans le lot des 73 banques, les situations varient enormement: certaines sont de bonne foi, elles avaient des clients americains non declares sans le savoir, d'autres en ont acceptes en toute connaissance de cause. Quand ils decouvriront que certaines banques ont vraiment ete complices de leurs clients fraudeurs, les Americains risquent bien de s'enerver. Le seul cas de figure qui pourrait les faire reflechir, c'est reventualite d'une sortie massive des banques du programme. Mais, IA encore, je doute que cela se produise: it est trop tard, les banques ont (MS donne trop d'informations pour prendre le risque de faire machine arriere.» Envoye depuis Mobil'IT ****** *********************************************************************************** ** Based on e-mail exchanges with you up until now or under past agreements, we believe we are entitled to contact you by unsecured e-mail. E-mail entails considerable risks: Internet communications cannot be guaranteed to be confidential, secure or error-free as information could be intercepted, corrupted, lost, arrive late or contain viruses. The sender therefore does not accept liability for any errors or omissions in the context of this message which arise as a result of Internet transmission. Unless otherwise stipulated herein, any opinions contained in this message are those of the author and are not given or endorsed by the company through which this message is sent. Nothing in this message or in its attachments should be construed as a solicitation or offer, or recommendation, to acquire or dispose of any investment or to engage in any other transaction. No order, order revocation, blocking order or any other bank order shall be accepted by electronic medium and we do not deem ourselves under any obligation either to refuse such orders expressly or to act upon them in any manner. ** EFTA00693166
+
+[PDF](pdfs/mette/EFTA00693165.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693165.pdf)
 
 ---
 
@@ -336,6 +574,118 @@ didn;t get to see you, ?
 
 ---
 
+### 2014-06-10T20:14:06+00:00
+
+**From:** = >•
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Eva
+
+Eva called to let you know she was walking in CP and ran in to Boris and Mette. Boris Mette Sent from my iPhone EFTA00706891
+
+[PDF](pdfs/mette/EFTA00706891.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00706891.pdf)
+
+---
+
+### 2014-06-10T20:14:06+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epsteinfleevacation©gmail.com]
+
+Subject: Eva
+
+Eva called to let you know she was walking in CP and ran in to Boris and Mette. Boris Mette Sent from my iPhone EFTA_R1_00362463 EFTA01919862
+
+[PDF](pdfs/mette/EFTA01919862.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919862.pdf)
+
+---
+
+### 2014-06-10T20:14:00+00:00
+
+**From:** Lesley Groff <
+
+**To:** Jeffrey Epstein
+
+Subject: Eva
+
+Eva called to let you know she was walking in CP and ran in to Boris and Met=e. Boris Mette Sent from my iPhone=?xml version=.0" encoding=TF-8"?> <!DOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version=.0"> <dict> <key>conversation-idgkey> <integer>292356</integer> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1402431248</integer> <key>flags</key> <integer>8590195713</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>415871</string> </dict> </plist> 1 EFTA_R1_01762877 EFTA02584240
+
+[PDF](pdfs/mette/EFTA02584240.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584240.pdf)
+
+---
+
+### 2014-06-10T11:36:00+00:00
+
+**From:** <
+
+**To:** Jeffrey Epstein
+
+Subject: Schedule
+
+S. • Cc: irStanilla; Jojo Fontanilla;. ; merwin dela cruz 11am and 1:00 TENTATIVE Austin Hall (do you want him to come?) ??? Mette?(she does not answer me) 3:00 wheels up to island Sent from my iPhone <?xml version="1.0" encoding="UTF-8"?> <!DOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version="1.0"> <dict> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1402400158</integer> <key>flags</key> <integer>8S90195717</integer> <key>gmail-label-ids</key> <array> <integer>7</integer> <integer>27</integer> </array> <key>remote-id</key> <string>415708</string> </dict> </plist> 1 EFTA_R1_02092807 EFTA02704779
+
+[PDF](pdfs/mette/EFTA02704779.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02704779.pdf)
+
+---
+
+### 2014-06-10T11:36:00+00:00
+
+**From:** Lesley Groff <
+
+**To:** Jeffrey Epstein
+
+Subject: Schedule
+
+Cc: irStanilla; Jojo Fontanilla; ; merwin dela cruz 11am and 1:00 TENTATIVE Austin Hall (do you want him to come?) ??? Mette?(she does not answer me) 3:00 wheels up to island Sent from my iPhone <?xml version="1.0" encoding="UTF-8"?> <!DOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version="1.0"> <dict> <key>conversation-idgkey> <integer>292475</integer> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1402400158</integer> <key>flags</key> <integer>8590195717</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>415708</string> </dict> </plist> 1 EFTA_R1_01763885 EFTA02584830
+
+[PDF](pdfs/mette/EFTA02584830.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584830.pdf)
+
+---
+
+### 2014-06-10T11:35:51+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Eestemaeeyacationpagmail.c2m1
+
+Subject: Schedule
+
+11am a and 1:00 TENTATIVE Austin Hall (do you want him to come?) ??? Mette?(she does not answer me) 3:00 wheels up to island Sent from my iPhone EFTA_R1_00360693 EFTA01919046
+
+[PDF](pdfs/mette/EFTA01919046.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01919046.pdf)
+
+---
+
+### 2014-06-10T11:35:51+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Schedule
+
+11am 1:00 TENTATIVE Austin Hall (do you want him to come?) ??? Mette?(she does not answer me) 3:00 wheels up to island Sent from my iPhone EFTA00990666
+
+[PDF](pdfs/mette/EFTA00990666.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990666.pdf)
+
+---
+
+### 2014-06-09T20:43:00+00:00
+
+**From:** Lesley Groff <
+
+**To:** Jeffrey Epstein
+
+Subject: Schedule tomorrow
+
+Cc: irStanilla; Jojo Fontanilla; ; merwin dela cruz 12:00 and IM 1:00 TENTATIVE Appt with Austin Hall (need JE to approve) ?? Mette ??? 7pm wheel up to island Sent from my iPhone <?xml version="1.0" encoding="UTF-8"?> <IDOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version="1.0"> <dict> <key>conversation-idgkey> <integer>292452</integer> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1402346562</integer> <key>flags</key> <integer>8590195717</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>415601</string> </dict> </plist> 1 EFTA_R1_01762935 EFTA02584280
+
+[PDF](pdfs/mette/EFTA02584280.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584280.pdf)
+
+---
+
 ### 2014-06-09T11:40:37+00:00
 
 **From:** jeffrey E." <jeevacation@grnail.eorn>
@@ -347,6 +697,174 @@ Subject:
 well?
 
 [PDF](pdfs/kronprinsessen/EFTA00991108.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991108.pdf)
+
+---
+
+### 2014-06-09T10:17:00+00:00
+
+**From:** Lesley Groff <
+
+**To:** Jeffrey Epstein
+
+Subject: Schedule
+
+Cc: Lynn Fontanilla; Jojo fontanilla; merwin dela cruz Mon. June 9, 2014 =Y Reminder: Mette =n NY ( Reminder: =all Tommy Mottola p) 10:00am Appt 11:00am Appt w/Hardeep and. 12:30am TENTATIVE Appt e or someone (waiting for reply) Woody sometime today? 2-3:00pm Appt w/Peter Diamandis (a) 3:00pm Appt w/Austin Hill = 3:30-5:30pm Meeting w/Eileen Alexanderson et al (Eileen I, Rich Kahn and =arren 6:00pm TENTATIVE Appt w/Ramsey Elkholy 8:00pm =INNER w/Peter Thiel and Ehud Barak (Barak EFTA_R1_01763803 EFTA02584787 (Talia is Peter's assistant: Peter =ill be bringing a guest = 2 EFTA_R1_01763804 EFTA02584788
+
+[PDF](pdfs/mette/EFTA02584787.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584787.pdf)
+
+---
+
+### 2014-06-09T10:16:34+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein <*eevacation ail.com>
+
+Subject: Schedule
+
+Mon. June 9, 2014 NY Reminder Mette in Reminder Call Tommy Mottola 10:00am Appt :Weira 11:00am Appt w/Hardeep and Svet 12:30am TENTATIVE Appt 'or someone (waitingf or reply) Woody sometime today? 2-3:00pm Appt w/Peter Diamandi. 3:00pm Appt w/Austin Hill 3:30-S:30pm Meeting iv/Eileen Alexanderson et al (Eileen , Rich Kahn and Darren 6:00pm TENTATIVE Appt iv/Ramsey Elkholy 8:00pm DINNER w/Peter Thiel and Ehud Barak (Barak (Talia is Peter's assistant: Peter will be bringing a guest EFTA00991102 EFTA00991103
+
+[PDF](pdfs/mette/EFTA00991102.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991102.pdf)
+
+---
+
+### 2014-06-09T09:01:44+00:00
+
+**From:** Lesley Groff
+
+**To:** jeffrey E." <jeevacation@gmail.com>
+
+Subject: Re: Schedule
+
+is scheduled for 10am today Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA00368287.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368287.pdf)
+
+---
+
+### 2014-06-08T23:05:31+00:00
+
+**From:** Jeffrey E." <jeevacation@gmail.com>
+
+**To:** Lesley Groff
+
+Subject: Re: Schedule
+
+do we have mon apt. , ? otherwise ask or also schedule or another at 12.30 and ramsey,
+
+[PDF](pdfs/mette/EFTA00368282.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368282.pdf)
+
+---
+
+### 2014-06-08T13:26:01+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein <jeevacation@gmail.corn>
+
+Subject: Schedule
+
+Sun. June 8, 2014 1.S.1-NY 6:00am Depart LSJ 9:22am Arrive NY 11:00am JE to Call Joe Thakuria VEGETARIAN LUNCH II:30-1:00pm LUNCH Appt w/Joi Ito (Reid Hoffman might join) 12:30-2:00pm LUNCH Woody Allen (Soon Yi 1:30-3:00pm Appt w/Hardeep and Tele 3:00pm Appt w/Ehud 3:30pm Appt iv/Steve Kosslyn 4:30pm Kelm Rudd Mon. June 9, 2014 NY Reminder: Mette in NY EFTA00991049 Reminder: Call Tommy Mottola 10:00am Appt II:00am Appt w/Hardeep and Svet Woody? 2-3: 00pm Appt w/Peter Diamandis 3:00pm Appt w/Austin Hall 3:30-5:30pm Meeting iv/Eileen Alexanderson et al (Eileen , Rich Kahn and Darren 6:00pm TENTATIVE Appt iv/Ramsey Elkholy 8:00pm DINNER w/Peter Thiel and Ehud Barak (Barsl (Talia is Peter's assistant: Peter will be bringing a guest Tues. June 10, 2014 NY-LSJ Reminder: Amfar The Inspiration Gala New York Charity Event, 6:30 Cocktails, 8pm Show, 9pm dinner. The Plaza, 768 Fifth Ave. Mette? 7:00pm Depart NY 10:30pm Arrive LSJ EFTA00991050
+
+[PDF](pdfs/mette/EFTA00991049.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00991049.pdf)
+
+---
+
+### 2014-06-08T13:26:01+00:00
+
+**From:** IMMI >
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Schedule
+
+Sun. June 8, 2014 1.S.1-NY 6:00am Depart LSJ 9:22am Arrive NY 11:00am JE to Call Joe Thakuria VEGETARIAN LUNCH II:30-1:00pm LUNCH Appt w/Joi Ito (Reid Hoffman might join) 12:30-2:00pm LUNCH Woody Allen (Soon Yi 1:30-3:00pm Appt w/Hardeep and Tele 3:00pm Appt w/Ehud 3:30pm Appt iv/Steve Kosslyn (a) 4:30pm Kelm Rudd Mon. June 9, 2014 NY Reminder: Mette in NY ( ) EFTA00368272 Reminder: Call Tommy Mottola p) 10:00am Appt II:00am Appt w/Hardeep andM Woody? (ea) 2-3:OOpm Appt w/Peter Diamandis 3:00pm Appt w/Austin Hall 3:30-5:30pm Meeting iv/Eileen Alexanderson et al (Eileen Rich Kahn and Darren 6:00pm TENTATIVE Appt w/Ramsey Elkholy 8:00pm DINNER w/Peter Thiel and Ehud Barak (Barak (Talia is Peter's assistant: I Peter will be bringing a guest Tues. June 10, 2014 NY-ISJ Reminder: Amfar The Inspiration Gala New York Charity Event, 6:30 Cocktails, 8pm Show, 9pm dinner. The Plaza, 768 Fifth Ave. Mette? 7:00pm Depart NY 10:30pm Arrive LSJ EFTA00368273
+
+[PDF](pdfs/mette/EFTA00368272.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368272.pdf)
+
+---
+
+### 2014-06-08T13:26:00+00:00
+
+**From:** Lesley Groff <
+
+**To:** Jeffrey Epstein
+
+Subject: Schedule
+
+Cc: Lynn Fontanilla; Jojo fontanilla; merwin dela cruz Sun. June 8, 2014 =SJ-NY 6:00am Depart =SJ 9:22am =rrive NY 11:00am JE to Call Joe Thakuria VEGETARIAN LUNCH 11:30-1:00pm LUNCH Appt w/Joi Ito (Reid Hoffman might join) 12:30-2:00pm LUNCH Woody Allen (Soon Yi 1:30-3:00pm Appt w/Hardeep and Terje 3:00pm Appt w/Ehud 3:30pm Appt w/Steve Kosslyn 4:30pm Kevin =udd Mon. =une 9, 2014 NY EFTA_R1_01763096 EFTA02584379 Reminder: Mette in NY (- Reminder: =all Tommy Mottola p) 10:00am Appt 11:00am Appt w/Hardeep and Woody? 2-3:00pm Appt w/Peter Diamandis ( p) 3:00pm Appt w/Austin Hall 3:30-5:30pm Meeting w/Eileen Alexanderson et al (Eileen Rich Kahn and =arren 6:00pm TENTATIVE Appt w/Ramsey Elkholy 8:00pm =INNER w/Peter Thiel and Ehud Barak (Barak (Talia is Peter's assistant: Peter =ill be bringing a guest Tues. June 10, 2014 =Y-LSJ Reminder: =mfar The Inspiration Gala New York Charity Event, 6:30 Cocktails, 8pm Show, 9pm dinner. The Plaza, 768 Fifth Ave. Mette? 2 EFTA_R1_01763097 EFTA02584380 7:00pm Depart =Y 10:30pm =rrive LS1 EFTA_R1_01 763098 EFTA02584381
+
+[PDF](pdfs/mette/EFTA02584379.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02584379.pdf)
+
+---
+
+### 2014-06-06T21:42:34+00:00
+
+**From:** Lesley Groff
+
+**To:** ff e
+
+Subject: Schedule
+
+Sat. June 7. 2014 LSJ Reminder: Prof Kosslyn to stay in apt 11B June 7-16 (arrive 7:29pm, depart 11:01am) Reminder: John Christensen to arrive SIT 3:53pm via Delta925 Sun. June 8. 2014 LSJ-NY 6:00am Depart LSJ 9:45am Arrive NY II:00am JE to Call Joe Thakuria 12:00pm VEGETARIAN LUNCH W/Hardeep, Terje, Joi and Kevin Rudd 3:00pm Appt w/Prof. Kosslyn TBD Woody? Mon. June 9. 2014 NY Reminder: Mette in NY 10:00am Appt EFTA_R1_00369456 EFTA01924557 II:00am Appt w/Hardeep and. Woody? 2-3:00pm Appt w/Peter Diamandis 3:00pm Appt w/Austin Hall 3:30-S:30pm Meeting w/Eileen Alexanderson et al Rich Kahn and Darren 6:00pm TENTATIVE Appt iv/Ramsey Elkholy 7:30pm DINNER w/Peter Thie! and Ehud Barak Tues. June 10. 2014 NY-LSJ Reminder: Amfar The Inspiration Gala New York Charity Event, 6:30 Cocktails, 8pm Show, 9pm dinner. The Plaza, 768 Fifth Ave. Mette? 7:00pm Depart NY 10:30pm Arrive LSI EFTA_R1_00369457 EFTA01924558
+
+[PDF](pdfs/mette/EFTA01924557.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924557.pdf)
+
+---
+
+### 2014-06-06T19:21:31+00:00
+
+**From:** IMIMI >
+
+**To:** L nn Fontanilla o'o fontanilla
+
+Subject: 
+
+will come see JE on MOnday at 10am Mon. June 9, 2014 NY Reminder: Mette in NY ( ) 10:00am Appt 11:00am Appt w/Hardeep andM Woody? 2-3:00pm Appt w/Peter Diamandis ( jo„) 3:00pm Appt w/Austin Hall 3:30-5:30pm Meeting iv/Eileen Alexanderson et al (Eileen 6:00pm TENTATIVE Appt w/Ramsey Elkholy 7:30pm DINNER w/Peter Thiel and Ehud Barak (Barak EFTA00368228
+
+[PDF](pdfs/mette/EFTA00368228.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368228.pdf)
+
+---
+
+### 2014-06-06T18:47:09+00:00
+
+**From:** IMMI >
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Peter Diamandis
+
+Peter Diamandis will come see you on Monday June 9th from 2-3pm Mon. June 9, 2014 NY Reminder: John Christensen to arrive STT 3:53pm via Delta925 (Rec. Lot Reminder Mette in NY ( 1 11:00am Appt w/Hardeep Woody? 2-3:00pm Appt w/Peter Diamandis 3:00pm Appt w/Austin Hal! ( ) 3:30-S:30pm Meeting iv/Eileen Alexanderson et al, Rich Kahn, Darren 6:00pm TENTATIVE Appt w/Ramsey Elkholv ( ) 7:30pm DINNER w/Peter Thiel and Ehud Barak EFTA00368222
+
+[PDF](pdfs/mette/EFTA00368222.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368222.pdf)
+
+---
+
+### 2014-06-06T18:47:09+00:00
+
+**From:** Lesley Groff <lesley.jee®gmail.com>
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Peter Diamandis
+
+Peter Diamandis will come see you on Monday June 9th from 2-3pm Mon. June 9, 2014 NY Reminder: John Christensen to arrive STT 3:53pm via Delta925 (Rec. Loc#AYPBWZ) Reminder Mette in NY ( 1 11:00am Appt w/Hardeep Woody? 2-3:00pm Appt w/Peter Diamandis 3:00pm Appt w/Austin Hal! ( ) 3:30-S:30pm Meeting iv/Eileen Aleranderson et al, Rich Kahn, Darren 6:00pm TENTATIVE Appt w/Ramsey Elkholv ( ) 7:30pm DINNER w/Peter Thiel and Ehud Barak EFTA00641036
+
+[PDF](pdfs/mette/EFTA00641036.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00641036.pdf)
+
+---
+
+### 2014-06-06T16:19:24+00:00
+
+**From:** Lesley Groff <MINIII >
+
+**To:** '
+
+Subject: Jeffrey Epstein
+
+Hello Mette. Hope you are well. I understand from Jeffrey you can come see him on Tuesday June 10th..What time works for you? 9 East 71st Street between 5th and Madison Just let me know and we will make it happen. Thanks, Lesley Assistant to Jeffrey Epstein EFTA00368206
+
+[PDF](pdfs/mette/EFTA00368206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00368206.pdf)
 
 ---
 
@@ -392,6 +910,48 @@ Think tuesday will work
 
 ---
 
+### 2014-06-06T09:00:27+00:00
+
+**From:** jeffrey E." <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: amFAR Inspiration gala
+
+skip. I will leave tuesday at 5 then thanks for the warning
+
+[PDF](pdfs/mette/EFTA00990825.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00990825.pdf)
+
+---
+
+### 2014-06-06T07:28:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeffrey E. leevacationagmail.com>
+
+Subject: Re: amFAR Inspiration gala
+
+To: Boris Nikolic find a nice place to live so you are happy there
+
+[PDF](pdfs/mette/EFTA01750875.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01750875.pdf)
+
+---
+
+### 2014-06-06T02:00:00+00:00
+
+**From:** Jeffrey E.
+
+**To:** Boris Nikolic
+
+Subject: Re: amFAR Inspiration gala
+
+To: Boris Nikolic skip. I will leave tuesday at 5 then thanks for the warning
+
+[PDF](pdfs/mette/EFTA01924767.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01924767.pdf)
+
+---
+
 ### 2014-06-06T00:00:00+00:00
 
 **From:** Jeffrey E.
@@ -420,6 +980,20 @@ do i get to see you in ny?
 
 ---
 
+### 2014-05-22T04:43:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein (jeevacation@omail.com)
+
+Subject: FW: Inspiration New York e-vite
+
+Attachments: I N NY- EVITE-10Bjpg <=p> Attached is info re amFAR=gala where Mette is getting an honor. <=p> Not sure if you are inter=sted getting a table (for girls, plus Peter Thiel, plus Eva and you).=/o:p> <=p> It will be somewhat gay &1; so you will need some girls around ;) <=p> You can find info in a li=k below. From: Zackar= Hemenway [mailto Sent: Thursday, May 15, 2014 1:20 PM To: Boris Nikolic Subject: Inspiration New York e-vite Hi Boris: Thank you for helping us make the Inspiration Gala N=w York come together. We are very excited for the event and couldn't have =one it without you. I wanted to send the e-vite to you so you can share =ith your circle of friends in case there was anyone else who would be inte=ested in purchasing a ticket or table. EFTA_R1_02165364 EFTA02717724 See attached for the e•vite and below for a link to =urchase online. https://www.k i ntera.org/AutoGen/Register/EC=eg.asp?ievent4672&en=lwL3K9PQLk LVK9PYKeKSId P3Kw12K8OU Kk K3KgNVI=LTIeN7IAL chttps://www.kintera.org/AutoGen/Register/=CReg.asp?ievent4672&en=lwL3K9POLkLVK9PYKeKSIdP3Kw.I2KBOUK kK3KgN=IiLTIeN7IAL> Best, Zack Hemenway Josh Wood Productions www.joshwordproductions.com <http://www.joshwoodproductions.com> O <t C <te 2 EFTA_R1_0216 5365 EFTA02717725
+
+[PDF](pdfs/mette/EFTA02717724.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02717724.pdf)
+
+---
+
 ### 2014-05-17T13:20:50+00:00
 
 **From:** Jeffrey E." <jeevacation@grnail.com>
@@ -431,6 +1005,34 @@ Subject:
 happy national day, hope you are well
 
 [PDF](pdfs/kronprinsessen/EFTA00989216.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00989216.pdf)
+
+---
+
+### 2014-05-01T22:56:59+00:00
+
+**From:** Jeffrey E.
+
+**To:** Boris Nikolic
+
+Subject: Re: Inspiration New York e-vite
+
+Cc: Richard Kahn Subject: Re: Inspiration New York e-vite EFTA_R1_00362958 EFTA01920054 Hi Boris...can you let me know what level ticket you have? Jeffrey would like us to purchase 2 tickets for him but he wants to be at the same level so he can sit with you...Please let me know as soon as possible :) thanks,
+
+[PDF](pdfs/mette/EFTA01920054-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920054-1.pdf)
+
+---
+
+### 2014-05-01T22:56:59+00:00
+
+**From:** Jeffrey E.
+
+**To:** Boris Nikolic
+
+Subject: Re: Inspiration New York e-vite
+
+Cc: Richard Kahn Subject: Re: Inspiration New York e-vite EFTA_R1_00362958 EFTA01920054 Hi Boris...can you let me know what level ticket you have? Jeffrey would like us to purchase 2 tickets for him but he wants to be at the same level so he can sit with you...Please let me know as soon as possible :) thanks,
+
+[PDF](pdfs/mette/EFTA01920054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01920054.pdf)
 
 ---
 
@@ -462,6 +1064,34 @@ origins institue tempe arizona. violinece humanity=
 
 ---
 
+### 2014-02-06T20:25:34+00:00
+
+**From:** A. de Rothschild
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Re:
+
+Hi jell, sorry got caught up. Benjamin unexpectdly came back from Cameroun, so it turns my agenda upside down. Noemie is also flying in tomorrow for the w-end as she s homesick. I will indeed be in Oslo monday and tuesday. Wedn i m stuck in gva and could come thursday to paris. Would you consider postponing your trip? I feel bad not being there and available. Envoye de mon iPhone Le 6 fevr. 2014 A 19:34, "Jeffrey Epstein" <jeevacation@gmail.com> a ecrit : I think you and Mette will really get along. you share many interests
+
+[PDF](pdfs/mette/EFTA00983345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00983345.pdf)
+
+---
+
+### 2014-02-06T18:34:34+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** A. de Rothschild" <1
+
+Subject: 
+
+I think you and Mette will really get along. you share many interests
+
+[PDF](pdfs/mette/EFTA00983339.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00983339.pdf)
+
+---
+
 ### 2014-02-06T18:34:19+00:00
 
 **From:** Jeffrey Epstein <jeevacation@gmail.com>
@@ -473,6 +1103,20 @@ Subject:
 I think you and Ariane will really get along. you share many interests
 
 [PDF](pdfs/kronprinsessen/EFTA00983338.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00983338.pdf)
+
+---
+
+### 2014-02-04T21:53:17+00:00
+
+**From:** COLOM, Olivier
+
+**To:** jeevacation@gmail.com[jeevacation@gmail.com]
+
+Subject: Re:
+
+I told you I was very un-French! :) I'm easy. Mette will be at our dinner in Oslo. Sure you don't want to come? :) De : Jeffrey Epstein [mailtoleevacation@gmail.com] Envoyd : Tuesday, February 04, 2014 10:49 PM A : COLOM, Olivier Objet : Re: french and half- happy, already too good to be true;)
+
+[PDF](pdfs/mette/EFTA01935329.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01935329.pdf)
 
 ---
 
@@ -630,6 +1274,20 @@ where for the holidays?
 
 ---
 
+### 2013-12-15T14:12:13+00:00
+
+**From:** Dot & Bo <hello@dotandbo.com>
+
+**To:** Jeff Eps <jeevacation@gmail.com>
+
+Subject: The Night of Noir: A Noir Living Exposé - Part 2 of 2
+
+INVITE FRIENDS. EARN $10 MY ACCOUNT CONTACT US Hand-Selected, Modern and Unique Designs Curated Daily FURNITURE DECOR & PILLOWS BED & BATH KITCHEN & DINING LIGHTING GIFT CARDS THE NIGHT OF NOIR You sink into the sofa. cocktail in hand. It was a long day, you think to yourself. and you kick off your shoes, sending them across the room with a thump. The shades are drawn, casting a shadowy glow over the room. It's dotted with bold, dark furniture, broken up by the occasional dramatic print or pillow. Suddenly, the phone rings. Your heart begins to race. Who could be calling at this hour? SHOP NOW EFTA_R1_00049125 EFTA01751207 Itsu Steel Clock in Black Hexagon Floating Shelf - Str Set of 3 Black & White Contrast Catalan Chair - Black Cali Pillow Cover Twill & Ash Lounge Chair Mod-Geometry Side Table Gec EFTA_R1_00049126 EFTA01751208 Catalan Chair - White Catalan Ottoman - White Time Modern Ash Wood Rocker Cable Knit Pouf - Black Blac in Black Ink Painting Night Chevron Canvas P EFTA_R1_00049127 EFTA01751209 Stand & Serve Tray Table - Stand & Serve - Tray Table Natural Black Chariot Alarm Clock - Vintage Wall Clock - Who Cream Cream Squiggle Coat Hanger - Ways to Hang Coat Rack For t Black EFTA_R1_00049128 EFTA01751210 Contemporary Caddy - Contemporary Caddy - Luce Black White Tissue Pod - Black Live What You Love Photo Cc Collage End Scene Chair - Black End Scene Loveseat - Enc Black EFTA_R1_00049129 EFTA01751211 Humphrey Tufted Bar Stool Wired Coffee Table The Protagonist Chair Mirrored Dressing Table with Noir Trim Parody Table Lamp Complex Mirror - Black Vi: EFTA_R1_00049130 EFTA01751212 Vintage Mette Nesting Vintage Bar Trolley Inv Tables - Set of 3 Feature Film Director Tribal Triangle Cushion Da Throw Pillow Cover Cover Luna Modem Coffee Table Four Little Birds Tealight Foldir Holder EFTA_R1_00049131 EFTA01751213 Vintage Karstad Side Table Wave Chaise in Black Fleur Framed Min SHOP ALL THE NIGHT OF NOIR THE PERFECT GIFT FOR EVERY OCCASION EFTA_R1_00049132 EFTA01751214 No matter who you're shopping for, a Dot & Bo E-Gift Card will make that special day even better. SHOP E-GIFT CARDS RECENT LY F EATURED IN A NOIR PLACE Tale of the Now Office SHOP NOW EFTA_R1_00O49133 EFTA01751215 AA 4>7404>4>V;bvo\- CA?•I A' EwD.14>s04>4>s(4>_inAcr 00 F ;4>1)c1.24>4>i 4>e4>O41a 4>WCAti 4>4>>6404>cr *WAY 4>13;s(4>ti 4014>Z0001-1/ d 94> 4>21Nr. 4>404>4>cAt 030 ,0)* L 4>4> *******4>wAhAp. 4>4>+-4>*(404>x94>+ KAtAGA ...lit] co. 4>4> CA4>4>PE •'a8— 4>4> 40014>PT 2C$r An*Wii4> 8Q4>4>#.-o4024>?4> AZmok.7[4>>h4>v03m4>'4>C4W" 4>Y4>A404>08:A]KA'AzAi Q4> .o.14>.- D4>A6K4>A4>,/.4> AAA.- Kz cAp0}P *Ai 4> ...6 -r.... sxy& .5 4>Y0 4)• • AA2p4>+ 40- [sAaL 4>:x1 Am 4>ANJA• 4>WAi a AO --4>zi AA AA $.1 XM 4)(4>4>F1 r4>4> d4>X4q00 4>C@iL AA rc.^A 1]4>-I k4> 4>A4>#4>4>y0J 8%•i 11.4>m 0010^ /4>4>q*,1008y0s .4>3)40^,6 CiM4>?4> ADY#I @4>A4>4> 4- MO4> AL74>B4>A6m4>Q4>4>xeG •f7 00 4>AA A4u4) m004>y017 4>Y04>• xbg4>$4> wAAAAA **Hi 4>C1 RWa- AAA 4> 401-14>g--4> F FAATJAH 4>0 03-4>" 4>%4>4>4>C4> 4>00 Abu404>H4> I LAgAT i A 4>A[4>$4>V4>4> F Pv4)200x6 01-1.4>+t >4q IDAJTj04>y •(g 4>p@4>4>D4>A4>T0 D• ; 4>4>A4>I1C)S0....4>KyAR 4>))0004>4>ICzA4>+*-4> 4>,4+.4>S0 {JKAGAATQAA A+ -(ojORWC1 A Al>004> 000001170 1(4>A4>-L **A) 4>4>J4>{404040 40404025;0<4 AAA} 4304>j491,,A>Dwi>4> nE***004>A4>gf(4>0'4> AA AVGAFIsi>4>knl t540417Ks AGAAAI A••I5•SsA/40.7 EFTA_R1_00049134 EFTA01751216 AY1 3- KA- PIP* OASiA5-1- i?4jEA APO. Aw@AtA5EkAAnAKAI 4>+ #pHARA Atb01 MIA, .8 4> AOAcr 404>!! pJ A A — A ADAAnA ADuA] AGA A9A1,A7!, 4k4k4k *RIA $4MQAvAZ<OT? X A^. *AMP* AAf000 4009004>AA-L KA.. A Au4r4U h40402,14) - A%' #<[x4105ArA A _I A. ArlY0o, Ad Al VoCT ?/ Atit, AA 4> AO, 4) AAA AO, AMnsform:uppercase; padding- le11:23px; padding-right:40px;" colspan="5">Fabulous Fete Kick off the New Year in high style SHOP NOW ON MOUNTAIN TIME Cozy up with our latest collection. SHOP NOW EFTA_R1_00049135 EFTA01751217 GIVING IN COLOR For those who live in hue SHOP NOW MOD KITCHEN GIFT GUIDE Cook up something sweet this holiday season. SHOP NOW EFTA_R1_00049136 EFTA01751218 UNWIND IN STYLE Embrace simplicity. SHOP NOW SHARE MORE SHOP MORE INVITE FRIENDS, EARN $10 Share the love of Dot & Bo! Get S10 store credit when you share Dot & Bo with your friends and they make their first purchase. The more you share, the more credit you can earn! INVITE YOUR FRIENDS TO DOT & BO EVERYDAY COL L ECT I ONS EFTA_R1_00049137 EFTA01751219 MODERN CHAIRS We've brought together some of the most iconic designs in 20th-century chairs so you can create your own sense of modem harmony in your home. SHOP NOW Eiffel Slope Chair in Red Nest Lounge and Pod Centric Chair Tete-6-Tete Chair Ottoman Set Invertebrate Lounge Chair Sjanse Chair in Gray Catalan Chair in Black Milena Folding Chair SHOP ALL MODERN CHAIRS EFTA_R1_00049138 EFTA01751220 INDUSTRIAL CHIC When you put wood and metal together. incredible things happen. Cool, sleek metal meets natural wood decor for a hip, laid-back look. SHOP NOW Reclaimed Hexagon Strano Ceiling Lamp Rolling Occasional Table Elm Wood Urban Counter Shebtes - Set of 3 Stool Steel Gray Ampersand Steampunk Clock Bistro Arm Chair Jute & Wood Linea Stool Sign SHOP ALL INDUSTRIAL CHIC EFTA_R1_00049139 EFTA01751221 MID-CENTURY CLASSICS Shop our Mid-Century Classics collection for everything from striking chairs and coffee tables to reimagined light fixtures and bring a touch of timeless style into your home. SHOP NOW Crete White Modem Total Transparency Mid-Century Slope Chair Benjamin Teak Sideboard Sectional Sofa Coffee Table in Black Crete White Modem Retro Sofa Table Modern Ash Wood Cubizoid Coffee Table Sectional Sofa Rocker In White SHOP ALL MID-CENTURY CLASSICS BROWSE DOT & B 0 EFTA_R1_00049140 EFTA01751222 SHOP BY CATEGORY FURNITURE DECOR & PILLOWS BED & BATH KITCHEN & DINING LIGHTING GIFTS & HOLIDAY You received this email because you are registered on detandtx:fsom with the email address, Iteyaccign@grr_iailsqrp. If you woud prefer not to receive emails from Dot & Bo in the future. please safely unsubscribe, Dot & Bo Inc.. 375 Potrero Avenue. Suite 1, San Francisco, CA. 94103 2013 Dot & Bo. Inc. EFTA_R1_00049141 EFTA01751223
+
+[PDF](pdfs/mette/EFTA01751207.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01751207.pdf)
+
+---
+
 ### 2013-12-14T07:00:22+00:00
 
 **From:** Jeffrey Epstein <jeevacation@gmail.com>
@@ -724,7 +1382,77 @@ Subject: fyi
 
 http://www.hellomagazine.coqroyalty/2013111315637/princess-mette-marit-neck-operation/ <http://www.hellomagazine.com/royalty/201315637/princess-mette-marit-neck-operationh =/p> Will keep you posted. I am talking to Hakkon non-sto= and he will be with her during a surgery. B 1 EFTA_R1_01380233 EFTA02373909
 
+[PDF](pdfs/mette/EFTA02373909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02373909.pdf)
+
+---
+
+### 2013-11-13T22:54:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein (jeevacation@gmail.com)
+
+Subject: fyi
+
+http://www.hellomagazine.coqroyalty/2013111315637/princess-mette-marit-neck-operation/ <http://www.hellomagazine.com/royalty/201315637/princess-mette-marit-neck-operationh =/p> Will keep you posted. I am talking to Hakkon non-sto= and he will be with her during a surgery. B 1 EFTA_R1_01380233 EFTA02373909
+
 [PDF](pdfs/mette-marit/EFTA02373909.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02373909.pdf)
+
+---
+
+### 2013-11-10T18:06:29+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+
+
+[PDF](pdfs/mette/EFTA00871895.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00871895.pdf)
+
+---
+
+### 2013-11-10T01:12:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+To: Boris Nikolic Subject: I can have someone go , tuesday , but your contract should be subject to inspection./ I will go on the 12th to yuri with you. / give mette a hug, / need 2 hrs bill time. / ************************ ************** *********************
+
+[PDF](pdfs/mette/EFTA01951939.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01951939.pdf)
+
+---
+
+### 2013-11-10T01:12:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein leevacationftmail.com>
+
+Subject: 
+
+To: Boris Nikolic I can have someone go , tucsday , but your contract should be subject to inspection./ I will go on the 12 th to yuri with you. / give mette a hug, / need 2 hrs bill time. / * *********** ***********************************************
+
+[PDF](pdfs/mette/EFTA01754399.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01754399.pdf)
+
+---
+
+### 2013-11-10T00:11:46+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+I can have someone go , tuesday , but your contract should be subject to inspection./ I will go on the 12 th to yuri with you. I give mette a hug, I need 2 hrs bill time. I
+
+[PDF](pdfs/mette/EFTA00975556.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00975556.pdf)
 
 ---
 
@@ -952,6 +1680,20 @@ N00000
 
 ---
 
+### 2013-09-29T20:11:31+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: 
+
+gates, melinda. larry ( harvard grades . sultan plane. jagland xmas. .haowken intemet, ehud, strategy. statoil grace. mongolia, visit. mort justina, dunja, ian. ( yuuir, boris mette. landon christakis, josh ramo. olover arian terje ste hanson leon, richardosnb branson
+
+[PDF](pdfs/mette/EFTA00971413.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971413.pdf)
+
+---
+
 ### 2013-09-28T16:33:36+00:00
 
 **From:** H.K.H. Kronprinsessen" <
@@ -980,6 +1722,48 @@ A bit Thanx
 
 ---
 
+### 2013-09-28T16:00:18+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Jeffrey Epstein <jeevacation®gmail.com>
+
+Subject: 
+
+gates, larry . ( harvard grades . sultan plane. jagland xmas. .haowken Internet, ehud, strategy. statoil mongolia, visit. mort ian. ( yuuir, boris mette. landon christakis, josh ramo. terje ste hanson leon,
+
+[PDF](pdfs/mette/EFTA00971304.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971304.pdf)
+
+---
+
+### 2013-09-28T15:57:35+00:00
+
+**From:** Jeffrey Epstein <jeevacation®grnail.com>
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: 
+
+gates, larry ( harvard grades . sultan plane. jagland xmas. .haowken Internet, ehud, strategy. statoil mongolia, visit. mort ian. ( yuuir, boris mette. landon christakis, josh ramo. terje ste hanson
+
+[PDF](pdfs/mette/EFTA00971301.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971301.pdf)
+
+---
+
+### 2013-09-28T15:55:06+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Jeffrey Epstein <jeevacation®gmail.com>
+
+Subject: 
+
+gates, larry ( harvard grades . sultan plane. jagland xmas. .haowken Internet, ehud, strategy. statoil mongolia, visit. mort ian. ( yuuir, boris mette. terje ste hanson
+
+[PDF](pdfs/mette/EFTA00971296.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971296.pdf)
+
+---
+
 ### 2013-09-28T15:51:58+00:00
 
 **From:** Jeffrey Epstein <jeevacation@gmail.com>
@@ -991,6 +1775,20 @@ Subject:
 hope you are feeling better
 
 [PDF](pdfs/kronprinsessen/EFTA00971295.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971295.pdf)
+
+---
+
+### 2013-09-28T15:51:36+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Jeffrey Epstein <jeevacation®gmail.com>
+
+Subject: 
+
+gates, larry . ( harvard grades . sultan plane. jagland xmas. .haowken Internet, ehud, strategy. statoil mongolia, visit. mort, ian. ( yuuir, boris mette.
+
+[PDF](pdfs/mette/EFTA00971294.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971294.pdf)
 
 ---
 
@@ -1120,6 +1918,20 @@ are you coming by at 8?
 
 ---
 
+### 2013-09-24T18:31:20+00:00
+
+**From:** Jeffrey Epstein <jeevacation@grnail.com>
+
+**To:** =cl
+
+Subject: Re: 3:30 arrival ok?
+
+skip
+
+[PDF](pdfs/mette/EFTA00382661.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00382661.pdf)
+
+---
+
 ### 2013-09-24T14:41:45+00:00
 
 **From:** Jeffrey Epstein <jeevacation@gmail.com>
@@ -1204,6 +2016,34 @@ Yes!!!!
 
 ---
 
+### 2013-09-22T20:29:37+00:00
+
+**From:** Lesley Groff <MINIII >
+
+**To:** ' <a
+
+Subject: Jeffrey Epstein
+
+Hello Mette...Just following up...might you know what time would be good for you to come see Jeffrey tomorrow, Monday Sept. 23rd? Please let me know. Jeffrey lives at 9 East 71st Street between 5th and Madison Thank you, Lesley Assistant to Jeffrey Epstein EFTA00383151
+
+[PDF](pdfs/mette/EFTA00383151.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383151.pdf)
+
+---
+
+### 2013-09-22T20:07:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein CC
+
+Subject: Do we have a time for Mette tomorrow? Shall I follow up with Her?
+
+Do we have a time for Mette tomorrow? She thought most likely she could =ee you Monday...do you want me to foliow up with her?=?xml version=.0" encoding=TF-8"?> <IDOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version=.0"> <dict> <key>conversation-id</key> <integer>267746</integer> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1379880394</integer> <key>flags</key> <integer>8623750149</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>344886</string> </dict> </plist> 1 EFTA_R1_01745583 EFTA02574610
+
+[PDF](pdfs/mette/EFTA02574610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574610.pdf)
+
+---
+
 ### 2013-09-22T19:21:08+00:00
 
 **From:** Jeffrey Epstein <jeevacation®gmail.com>
@@ -1229,6 +2069,62 @@ Subject:
 welcome. I told boris there are a group of swedish female economists coming to the house at 6 tonight , you are of course welcome.
 
 [PDF](pdfs/kronprinsessen/EFTA00971120.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971120.pdf)
+
+---
+
+### 2013-09-22T13:05:00+00:00
+
+**From:** Story <jeevacation@gmail.com >
+
+**To:** jeevacation@gmail.com
+
+Subject: Alert - mette
+
+September 22, 2013 12:00 AM : mette <?xml version="1.0" encoding="UTF-B"?> <IDOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version="1.0"> <clict> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1379855110</integer> <key>flags</key> <integer>8623750145</integer> <key>gmail-label-ids</key> <array> <integer>21</integer> <integer>5</integer> </array> <key>original-mailbox</key> <string>imap://jeevacation@imap.gmail.com/%58Gmail%5D/All%20Mail</string> <key>remote-id</key> <string>344691</string> </dict> </plist> 1 EFTA_R1_01360277 EFTA02365191
+
+[PDF](pdfs/mette/EFTA02365191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02365191.pdf)
+
+---
+
+### 2013-09-21T20:50:42+00:00
+
+**From:** Google Calendar
+
+**To:** Jeffrey Epsteinfieeyacation©gmail.com]
+
+Subject: Reminder: mette @ Sun Sep 22, 2013 (jeevacation©gmail.com)
+
+more details mette When Sun Sep 22.2013 Calendar jeevacation@gmail.com Who Jeffrey Epstein - organizer Invitation from Coople Calendar You are receiving this email at the account jeevacation@gmail.com because you are subscribed for reminders on calendar ieevacation©gmail.com. To stop receiving these notifications, please log in to httpsliwww.google.comfcalendari and change your notification settings for this calendar. EFTA_R1_00427227 EFTA01956336
+
+[PDF](pdfs/mette/EFTA01956336.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01956336.pdf)
+
+---
+
+### 2013-09-20T21:51:57+00:00
+
+**From:** Mark Tollison
+
+**To:** =ca'
+
+Subject: RE: Schedule
+
+Importance: Normal Thank you =I Mark Best regards, Mark Tollison
+
+[PDF](pdfs/mette/EFTA00383074.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383074.pdf)
+
+---
+
+### 2013-09-20T20:53:24+00:00
+
+**From:** Lesley Groff <MINIII >
+
+**To:** Epstein Jeffrey <jeevacation@grnail.corn>
+
+Subject: Schedule
+
+TONIGHT: 7:30 BILL & Melinda GATES to arrive the house 8:00pm DINNER and other guests to arrive: Dinner will be Bill, Melinda, Terje, Jagbland, JE. Larry & Lisa Summers are invited —waitingf or reply. Eva & will stop by around 9:30but not be seatedf or dinner. Saturday Sept 21, 2013 NY Reminder: Call Reminder: Princess Mette to arrive today and stay until Thurs, Sept 26 Reminder: Michael Wolff() Reminder: J. Dennis Paulin to go for a site visit of the island today (land at 10:30 depart island at 3pm) .1:s cell. TBD Morning w/Ehud (Will this be a breakfast?) 71st 1:45pm Jed Garfield at to show the house. His client will arrive at 2pm (Jed: to meet with Jed 2:30pm Appt EFTA00971532 3:00pm Appt w/Prof. Kosslyn 3:45pm Prof Kosslyn wife, Robin will arrive 4:00pm Appt (LATE LUNCH) w/Olivier Colom 6:00pm Thorbjoern Jagbland TBD Dinner w/Ehud Barak? Rothschild? (NOT SURE THIS IS HAPPENING NOW SINCE EHUD IS COMING IN THE MORNING...NEED TO HEAR BACK FROM Ja Sunday Sept 22, 2013 NY Reminder: Josh Cotnpo, Rothschild, Olivier Colom Reminder: Tim Zagat (maybe Tim, you and Joel Klein could have some food) Tim: 6:00pm BBB Gathering w/Female Economist of the Year and Barbro Ehnbom ( ) Christina Andersson is helping to coordinate Champagne and Canapes Monday Sept 23, 2013 NY Reminder: Joshua Cooper Ramo back in NY today Reminder: Kissinger is free starting evening of Sept. 23rd Reminder: Barak is NOT available today btwn 5-6pm today 9:15am BREAKFAST w/Ariane de Rothschild, Olivier Colom & Ehud Barak (Does Nili come to breakfast too?) EFTA00971533 11:OOam TBD °warn?? TBD Mette 2:00pm Appt w/Ben Black 3:00pm Appt w/Alan Dlugash 4:00pm Appt w/Barnaby Marsh 8:30pm Dinner at Mort Zuckerman k, hosted by Mort & Terje (Jabor, Pres. Of Mongolia: Tsakhiagiin Elbegdorj) CAN JE BR1NGffi? Tuesday Sept, 2103 NY Reminder: Nicholas Christakis in NY Sept. 24 & 25 6:30am Breakfast w/Josh Ramo and Ehud Barak (Josh: 917-945-1540) (Barak cell: 011972506286600) 11-11:30am Appt w/Bruce Galloway EFTA00971534 TBD LUNCH W/KAZAKHS?? 12:30pm Lunch w/Olivier Colom (confirmed w/Olivier) TBD Jagbland (Will this still happen since he is now coming on 21st at 6pm??) 5:00pm Appt w/Nicholas Christakis Wednesday Sept 25, 2013 NY Reminder: Valdson & depart NY today via British Airways #8004 at 8:25pm from Newark Reminder: Joel Klein and Hiffington Reminder: Reid Weingarten to be in NY today (most likely) 7:30am Appt w/Josh Black 2:00pm Appt w/Leon Black at his office (9 West 57th Street, 43rd Floor) Take ID and Glasses! 4:15pm EST (1:15 PST) Skype w/Reid Hoffman (Skype name: TBD TBD Ian Osborne cell) TBD Reid Weingarten (Assistant Pamela: EFTA00971535 Thursday Sept 26, 2013 NY-PARIS Reminder: allesandro de benedetti —Paris th Reminder: Harry Beller out for Jewish Holiday Sept. 20 and 27 8:30am Breakfast w/lan Osborne TBD LUNCH WIWoody Allen (Woody: WILL THIS HAPPEN? 9:55pm JE and depart for Paris via Air France #11 from JFK (380 Airplane)Rec Loc# Friday Sept 27, 2013 PARIS (M) Reminder: allesandro de benedetti paris Reminder: pads meeting, lang, victo, ariandked, fabrice, emily lean, jean luc th Reminder: Caroline's birthday Sept 27 Reminder: Fabrizio and Shahar Reminder: Wojtek Fibak (Fine Arts Investments) 11:10am JE and to arrive Charles De Gaulle 9:23pm to arrive via train from London (train departs London at 6:01pm) (Margherita c cell: 8:30pm Dinner at Ariane de Rothschilds home Saturday Sept 28, 2013 PARIS a i EFTA00971536 Sunday Sept 29, 2013 PARIS Reminder: Sultan in Paris cell) Reminder: Jabor Y in NY today d Reminder: Giselle (Paris) Reminder: Call Frederic Chaslin Monday_&a, 2013 PARIS Reminder Lyn, Jojo and Tes on vacation starting today, Sept 30-Nov. 3 (back at work on Nov. 4) Reminder: Janusz and Louella to arrive NY via Delta Air#2358 at 10:49am 7:08PM to depart via train from Paris back to London (she arrives London at 8:41pm) NY: 11:30am Eva's Party: Dubin Breast Center 2,d Annual Fact vs Fiction Luncheon & Symposium 11:30am Specialty Juices 12:00pm Lunch & Program 320 Park Ave, 35a1i Floor (between & 51s9 EFTA00971537
+
+[PDF](pdfs/mette/EFTA00971532.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00971532.pdf)
 
 ---
 
@@ -1274,6 +2170,20 @@ Forwarded message From: H.K.H. Kronprinsessen Date: Fri, Sep 20, 2013 at 2:48 AM
 
 ---
 
+### 2013-09-20T10:19:56+00:00
+
+**From:** Google Calendar <calendar-notification@google.com>
+
+**To:** Lesley Groff
+
+Subject: Reminder: reminder: Mette @ Fri Sep 20, 2013 6:30am - 7am (
+
+reminder: Mette more details » vo,en Fri Sep 20, 2013 6:30am — 7am Eastern Time Calendar Who • Lesley Groff - organizer Invitation from Google Calendar You are receiving this email at the account because you are subsaibed for reminders on calendar- To stop receiving these notifications, please log in to https:thmw.google.comicalendar/ and change your notification settings for this calendar. EFTA00383230
+
+[PDF](pdfs/mette/EFTA00383230.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383230.pdf)
+
+---
+
 ### 2013-09-20T06:48:43+00:00
 
 **From:** H.K.H. Kronprinsessen
@@ -1302,6 +2212,48 @@ when?
 
 ---
 
+### 2013-09-18T20:39:21+00:00
+
+**From:** Lesley Groff <MIEll >
+
+**To:** Jefffrey Epstein <jeevacation®gmail.com>
+
+Subject: Schedule
+
+Thursday Sept 19, 2013 LSJ-NY Reminder: Tim Zagat aM) Reminder: Terje to arrive IVY today Reminder: jabot; zagaa Joel, mort.M. josh, oiliver, branson. hoffmanjoi.chritakis woody , koons Reminder: Harry Beller out for Jewish Holiday Thurs. Sept 19th and Fri. Sept 20th Reminder: .loi Ito (MM) 4:15am Helif rom LSJ to SIT 5:00am Wheels up from STT to Islip 9:00am Arrive Islip, to meet you here (=: ) Hawthorne Aviation TBD Depart Islip for Teterboro, Atlantic Aviation 10:15am Arrive Teterboro EFTA00639219 Atlantic Aviation TEB 1:30pm 2:00pm Appt w/Rich and Darren 5:00pm Appt w/Felicia Taylor ( 7:45pm Casual Dinner w/Terje and Ehud (so you want to invite Joel Klein!?) Will Nili be joining? (Barak: )(Terle: 9:30pm After Partyf or the Screening of " Muscle Shoals", Confirmed: JE plus 1 The General Jazz Room Friday Sept 20, 2013 NY Reminder: Mary Erdoes ( Reminder: Call Frederic Fekkai today (1 Reminder: Call Nina Keita Reminder: Mette TBD LUNCH w/Ehud Barak & Joel Klein (Barak: )(Joel: office, EFTA00639220 10:30am TBD Boris Nikolic ( )- His schedule is still influx, but most likely he will come see you Morning/early afternoon. 3:00pm Appt w, tl TBD Larry Summers? ( 7:30 BILL & Melinda GATES to arrive the house 8:00pm DINNER and other guests to arrive: Dinner will be Bill, Melinda, Terje, Jagbland, JE. Larry & Lisa Summers are invited —waitingf or reply. will stop by but not be seatedf or dinner. Saturday Sejit 21, 2013 NY Reminder: Call tl Reminder: Princess Mette to arrive today and stay until Thurs, Sept 26 Reminder: Michael Wolff Reminder: J. Dennis Paulin to go for a site visit of the island today (land at 10:30 depart island at 3pm) .1:s cell: TBD Morning w/Ehud (Will this be a breakfast?) 1:45pm Jed Garfield at 71st to show the house. His client will arrive at 2pm (Jed: EFTA00639221 2:30pm Appt tl 3:00pm Appt w/Prof. Kosslyn 4:00pm Appt (LATE LUNCH) w/Olivier Colom 1 6:00pm Jagbland 7:00pm Mette??? TBD Dinner w/Ehud Barak? Rothschild? (NOT SURE THIS IS HAPPENING NOW SINCE EHUD IS COMING IN THE MORNING...NEED TO HEAR BACK FROM JES) Sunday Sept 22, 2013 NY Reminder: Josh Compo, Rothschild, Olivier Colom Reminder: Tim Zagat (maybe Tim, you and Joel Klein could have some food) Tim: 6:00pm BBB Gathering w/Female Economist of the Year and Barbro Ehnbom Christina Andersson is helping to coordinate (1 Champagne and Canapes Monday Sept 23. 2013 NY Reminder: Joshua Cooper Ramo back in NY today Reminder: Kissinger is free starting evening of Sept 23rd Reminder: Barak is NOT available today btwn 5-6pm today EFTA00639222 8:00am BREAKFAST w/Ariane de Rothschild, Olivier Colom & Ehud Barak (Does Nili come to breakfast too?) 11:00am TBD Outara?? 2:00pm Appt w/Ben Black (I 3:00pm Appt w/Alan Dlugash 4:00pm TENTATIVE Appt w/Barnaby Marsh ( 8:30pm Dinner at Mort Zuckerman's, hosted by Mort & Terje (Jabor, Pres. Of Mongolia: Tsakhiagiin Elbegdorj) CAN JE BR1NGffi? Tuesday Sept 24, 2103 NY Reminder: Nicholas Christakis in NY Sept. 24 & 25 ( 6:30am Breakfast w/Josh Ramo (I 11-11:30am Appt w/Bruce Galloway (I TBD LUNCH W/KAZAKHS?? EFTA00639223 12:30pm Lunch iv/Olivier Colom (confirmed w/Olivier) TBD Jagbland (Will this still happen since he is now coming on 2151 at 6pm??) 5:00pm Appt w/Nicholas Christakis ( ) Wednesday Sept 25, 2013 NY Reminder: Valdson depart NY today via British Airways #8004 at 8:25pm from Newark Reminder: Joel Klein and Hiffington Reminder: Reid Weingarten to be in NY today (most likely) 7:30am Appt w/Josh Black 2:00pm Appt w/Leon Black at his office Take ID and Glasses! 4:15pm EST O:15 PST) Skype w/Reid Hoffman (Skype name: TBD Ian Osborne cell) TBD Reid Weingarten (Assistant Pamela: Thursday Sept 26, 2013 NY-PARIS a Reminder: allesandro de benedetti —Paris Reminder: Harry Beller out for Jewish Holiday Sept 26ah and 27th EFTA00639224 TBD LUNCH WIWoody Allen and Jeff Koons (Woody: (Jeff: TBD Go See Jeff Koons Big Studio in NY (?) 9:55pm JE and depart for Paris via Air France #11 from JFK (380 Airplane) Friday_Sept 27, 2013 PARIS in Reminder allesandro de benedetti paris Reminder: paris meeting, lang, victo,ared, fabrice, lean, jean lue Reminder: 11:10am .11-i and ffi to arrive Charles De Gaulle TBD Train Ticket for after 5pm. Need to purchase... How long can she stay? (still awaiting answer from TBD Dinner at Ariane de Rothschild k home (need time and her address/phone number) Saturda pt 28, 2013 PARIS al Sunday Sept 29, 2013 PARIS Reminder Sultan in Paris (-I- cell) Reminder: Jabor Y in NY today Monday Sept, 2013 PARIS EFTA00639225 Reminder: Lyn, Jojo andE on vacation starting today, Sept 30-Nov. 3 (back at work on Nov. 4) Reminder: Janusz and to arrive NY via Delta Air#2358 at 10:49am 11:30am Party: Dubin Breast Center 2"d Annual Fact vs Fiction Luncheon & Symposium 11:30am Specialty Juices 12:00pm Lunch & Program EFTA00639226
+
+[PDF](pdfs/mette/EFTA00639219.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00639219.pdf)
+
+---
+
+### 2013-09-18T18:06:31+00:00
+
+**From:** Mcl
+
+**To:** Richard Barnett -1
+
+Subject: Fwd: Rich Barnett-dinners?
+
+see below! Begin forwarded message: From: Jeffrey Epstein <jeeyacation@gmail.com> Subject: Re: Rich Barnett-dinners? Dateilitember 18, 2013 2:03:57 PM EDT To: tomorw
+
+[PDF](pdfs/mette/EFTA00383337.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383337.pdf)
+
+---
+
+### 2013-09-18T18:03:57+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Mcl
+
+Subject: Re: Rich Bamett-dinners?
+
+tomorw
+
+[PDF](pdfs/mette/EFTA00383331.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383331.pdf)
+
+---
+
 ### 2013-09-18T15:46:33+00:00
 
 **From:** Lesley Groff
@@ -1313,6 +2265,34 @@ Subject: Jeffrey Epstein
 Hello Mette....just checking in...Might you be available to come see Jeffrey this Sat. Sept. 21st or Sun. Sept. 22nd? Please let me know! Thank you, Lesley Assistant to Jeffrey Epstein EFTA00383303
 
 [PDF](pdfs/kronprinsessen/EFTA00383303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383303.pdf)
+
+---
+
+### 2013-09-18T15:46:33+00:00
+
+**From:** Lesley Groff
+
+**To:** H. K.H. ICronprinsessen" <MIII=M>
+
+Subject: Jeffrey Epstein
+
+Hello Mette....just checking in...Might you be available to come see Jeffrey this Sat. Sept. 21st or Sun. Sept. 22nd? Please let me know! Thank you, Lesley Assistant to Jeffrey Epstein EFTA00383303
+
+[PDF](pdfs/mette/EFTA00383303.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00383303.pdf)
+
+---
+
+### 2013-09-18T15:10:00+00:00
+
+**From:** Lesley Groff <SIIMI
+
+**To:** Jefffrey Epstein
+
+Subject: Mette?
+
+Shall I follow up with Mette re is she free Sat Sept 21 or Sun Sept 22? <?xml version="1.0" encoding="UTF-8"?> <!DOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version="1.0"> <dict> <key>conversation-id</key> <integer>267420</integer> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1379516989</integer> <key>flags</key> <integer>8590195717</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>343382</string> </dict> </plist> 1 EFTA_R1_01745429 EFTA02574522
+
+[PDF](pdfs/mette/EFTA02574522.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02574522.pdf)
 
 ---
 
@@ -1456,6 +2436,20 @@ Yes!!!! Will you be there?
 
 ---
 
+### 2013-08-03T00:53:12+00:00
+
+**From:** messages-noreply@bounce.linkedin.com on behalf of LinkedIn Connections
+
+**To:** Jeffrey Epstein[jeevacation©gmail.com]
+
+Subject: See Tony's connections, experience, and more...
+
+Jeffrey, Tony has accepted your invitation. Tony Knight Member of the Firm at Sitrick And Company Greater Los Angeles Area I Public Relations and Communications Industry View Tony's Profile Send a Message TONY'S CONNECTIONS t I 11 j See All Michael Sitrick, Chairman & CEO at Sitrick And Company Connect EFTA_R1_00436960 EFTA01961942 1 Dan Chmielewski, Principal, Public Relations, Marketing Communications, and . Social Media Strategist, Madison Alexander PR, Inc. Connect Tom Vogel, Strategic communications executive - U.S. & Latam; book editor + author. Prior: award-winning journalist (WSJ,Bloomberg) Connect Mette Kurth, Partner at Arent Fox LLP Connect Crisis Communication Join Rotary Reconnections Join COMPANIES IN TONY'S NETWORK Sitrick And Company 'I Follow Company EFTA_R1_00436961 EFTA01961943 A ic,--- — CNBC , Follow Company Chevron Follow Company Home Team Sports, a division of Fox Sports Media Group Follow Company This is an occasional email to help you get the most out of Linkedln Ullalibleritte This email was intended for Jeffrey Epstein. Learn why we included this C 2013. Linkedln Corporation. 2029 SUerlin Ct. Mountain View. CA 94043. USA EFTA_R1_00438962 EFTA01961944
+
+[PDF](pdfs/mette/EFTA01961942.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01961942.pdf)
+
+---
+
 ### 2013-07-31T15:46:31+00:00
 
 **From:** H.K.H. Kronprinsessen" <
@@ -1512,6 +2506,20 @@ thanks
 
 ---
 
+### 2013-07-14T22:45:29+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+While they are in Norway, Bill and Melinda might enjoy meeting Terje and his wife, ( also a diplomat, she was nominated to be Ambassador to the US ) , and/or Thjorbom Jagland and his wife, both have houses on the fjords, I can arrange it if Bill wants. I assume they will meet Mette and Halken anyway. I will be able to speak with Larry late in the day tomorrow. This week I am swamped . I see now, that even late friday won't work. for Bill. I can confirm the 8th or 9th ( dinner ? ) I might be able to travel to Norway , if he would enjoy that , but I obviously need to better understand the reason for the deadline. Is there some sort of public filing requirement for the foundation? Would a signed but undated letter of resignation satisfy Meilinda's requirements. ?
+
+[PDF](pdfs/mette/EFTA00965285.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00965285.pdf)
+
+---
+
 ### 2013-06-28T01:52:00+00:00
 
 **From:** Jeffrey Epstein <jeevacation®gmail.com>
@@ -1540,6 +2548,188 @@ shoppping at530
 
 ---
 
+### 2013-06-27T15:45:23+00:00
+
+**From:** Lesley Groff
+
+**To:** Epstein Jeffrey <jeevacation@gmail.com>
+
+Subject: FYI-Princess Mette/Eva-Shopping at Prada
+
+FYI-I emailed Princess Mette asking if she could meet you for shopping at Prada and suggested 5:30 or 6pm... (Prada on Madison and 70th is open until 7pm) Eva has a meeting at 2pm but is relatively free the rest of the day...her assistant has penciled in shopping at Prada around 5:30 or so... The Princess is not real fast on getting back to me and yesterday she emailed me that she was dealing with you directly... EFTA00964361
+
+[PDF](pdfs/mette/EFTA00964361.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00964361.pdf)
+
+---
+
+### 2013-06-26T22:57:03+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Lesley Groff
+
+Subject: Re: Schedule
+
+Yes
+
+[PDF](pdfs/mette/EFTA00963345.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963345.pdf)
+
+---
+
+### 2013-06-26T22:57:03+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Lesley Groff
+
+Subject: Re: Schedule
+
+Yes
+
+[PDF](pdfs/mette/EFTA00388545.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388545.pdf)
+
+---
+
+### 2013-06-26T22:29:51+00:00
+
+**From:** Lesley Groff <lesley.jee®gmail.com>
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Re: Schedule
+
+I gave you her resume and was awaiting instruction. Would you like to try and see her tomorrow? Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA00388540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388540.pdf)
+
+---
+
+### 2013-06-26T22:29:51+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Re: Schedule
+
+I gave you her resume and was awaiting instruction. Would you like to try and see her tomorrow? Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA00646131.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646131.pdf)
+
+---
+
+### 2013-06-26T22:20:01+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Lesley Groff <lesleyjee®gmail.com>
+
+Subject: Re: Schedule
+
+what happend to barbros candidate
+
+[PDF](pdfs/mette/EFTA00963340.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963340.pdf)
+
+---
+
+### 2013-06-26T22:20:01+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Lesley Groff
+
+Subject: Re: Schedule
+
+what happend to barbros candidate
+
+[PDF](pdfs/mette/EFTA00388536-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536-1.pdf)
+
+---
+
+### 2013-06-26T22:20:01+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Lesley Groff
+
+Subject: Re: Schedule
+
+what happend to barbros candidate
+
+[PDF](pdfs/mette/EFTA00388536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388536.pdf)
+
+---
+
+### 2013-06-26T20:49:00+00:00
+
+**From:** Lesley Groff <lesley.jee®gmail.com>
+
+**To:** Epstein Jeffrey <jeevacation@gmail.com>
+
+Subject: Schedule
+
+TONIGHT: 5:00pm Appt w/Reid Weingarten (Assistant, Pamela 7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the Hifi (I4LL indont TAKE 2 FORMS of ID! 175 Eighth Avenue 9:30pm TENTATIVE Mort Zuckerman to stop by (WAITING FOR REPLY!) THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply) TBD TENTATIVE Breakfast w/Mort Zuckerman (WAITING FOR REPLY) 11:00am Appt wa( ) 12:30pm Appt w/Dan Rosenberg, Steve Cantor & Archana Pinnapureddy (Dan cell: EFTA00963335 3:00pm Appt w/ Joel Klein (2a 5:00pm Appt w/Todd Meister ( E) FRL JUNE 28, 2013 NY-HARVARD-LSJ TAKE KEYSA ND ELEVATOR CARD TO MARTIN'S OFFICE! TAKE KEYS AND ELEVATOR CARD TO MARTIN'S OFFICE! GO TO HARVARD! Joi Ito: 7:45am Everyone to meet at house ready to go 8:00am Depart 71st for Teterboro Airport 8:45am Wheels up from Teterboro, Atlantic Aviation to Bedford 9:20am Arrive Bedford, Jet Aviation (380 Hanscom Dr., Hanscom Field, Bedford, MA, EFTA00963336 Drive to Joi Ito Media Lab Cambridge, MA 02139 Danielle Nadeau < cell 10:30-11:30 Appt w/Joichi Ito and Ed Boyden/Tour w/Joi Ed Boyden (1 11:30-12:00pm Neil Gershenfeld/Tour of Loh (Assistant is: Theresa Tomic 12:00-12:45pm Lunch w/Neil at Media Lab 1-2:00pm Appt (George Church) Expect ONE Hourf or and consent form. MGH, 55 Fruit St, Boston Physician who will be taking : Joe Thakuria, MD cell You can also have Joe paged through the hospital ( Pager # Yvetta is George's assistant Log in to: httpillwww.personalgenomes.org/signup.html Jeffrey's Email: jeevacation@gmaitcom Password: Security Question: Mother's Maiden Name: Martin Nowak k Institute EFTA00963337 2:30pm Appt w/Mike Hopkins (1 3:30pm Appt w/Henty Rosovsky ( ) Henry must leave at 4:20 for another appointment 4:30pm Appt w/Martin Nowak (1 ) and Others 7:00pm Wheels up to STT SAT JUNE 29. 2013 LSJ Reminder: Touch base w/Whitfield Diffie ( SUN. JUNE 30, 2013 LSJ EFTA00963338
+
+[PDF](pdfs/mette/EFTA00963335.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963335.pdf)
+
+---
+
+### 2013-06-26T20:49:00+00:00
+
+**From:** Lesley Groff <MINII >
+
+**To:** Epstein Jeffrey
+
+Subject: Schedule
+
+TONIGHT: 5:00pm Appt w/Reid Weingarten (Assistant, Pamela 7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the WILL (I4LL indont TAKE 2 FORMS of ID! 175 Eighth Avenue 9:30pm TENTATIVE Mort Zuckerman to stop by (WAITING FOR REPLY!) THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply) TBD TENTATIVE Breakfast w/Mort Zuckerman (WAITING FOR REPLY) 11:00am Appt w 12:30pm Appt w/Dan Rosenberg, Steve Cantor & Archana Pinnapureddy (Dan cell: EFTA00388528 3:00pm Appt w/ Joel Klein ( ) 5:00pm Appt w/Todd Meister ( E) FRL JUNE 28, 2013 NY-HARVARD-LSJ TAKE KEYSA ND ELEVATOR CARD TO MARTIN'S OFFICE! TAKE KEYS AND ELEVATOR CARD TO MARTIN'S OFFICE! GO TO HARVARD! Joi Ito: 7:45am Everyone to meet at house ready to go 8:00am Depart 71st for Teterboro Airport 8:45am Wheels up from Teterboro, Atlantic Aviation to Bedford 9:20am Arrive Bedford, Jet Aviation (380 Hanscom Dr., Hanscom Field, Bedford, MA, EFTA00388529 Drive to Joi Ito Media Lab 75 Amherst Street, secondf loor in room 245 Cambridge, MA 02139 Danielle Nadeau < cell 10:30-11:30 Appt w/Joichi Ito and Ed Boyden/Tour w/Joi Ed Boyden (1 11:30-12:00pm Neil Gershenfeld/7'our of Lab (Assistant is: Theresa Tomic 12:00-12:45pm Lunch w/Neil at Media Lab 1-2:00pm Appt To Take Skin Cell Samples (George Church) Expect ONE Hour for samples and consent form. MGH, 55 Fruit St, Boston Physician who will be taking samples: Joe Thakuria, MD cell You can also have Joe paged through the hospital ( Pager # d Yvetta is George's assistant ( Log in to: http://www.personalgenomes.org/signup.html Jeffrey's Email: jeevacation@gmait com Password: Security Question: Martin Nowak's Institute EFTA00388530 1 Brattle Square, Suite 6 2:30pm Appt w/Mike Hopkins (1 3:30pm Appt w/Henty Rosovsky ( ) Henry must leave at 4:20 for another appointment 4:30pm Appt w/Martin Nowak (1 ) and Others 7:00pm Wheels up to ST7' SAT JUNE 29. 2013 LSJ Reminder: Touch base w/Whitfield Diffie ( )(1 SUN. JUNE 30, 2013 LSJ EFTA00388531
+
+[PDF](pdfs/mette/EFTA00388528.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388528.pdf)
+
+---
+
+### 2013-06-26T20:32:41+00:00
+
+**From:** Lesley Groff <MIMIII >
+
+**To:** Epstein Jeffrey <jeevacation@grnail.corn>
+
+Subject: 
+
+is very excited to tell you about what is happening with her...she is now asking if you could possibly see her tonight? (if not tonight, she will come at 11 am tomorrow) Please let me know if you want her to come tonight or at Ilam tomorrow. 5:00pm Appt w/Reid Weingarten (Assistant, Pamela: 7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the HILL CALL Ifindow. TAKE 2 FORMS of ID! 175 Eighth Avenue THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply) 11:00am TENTATIVE Appt wi 12:30pm Appt w/Dan Rosenberg, Steve Cantor & Archana Pinnapureddy (Dan cell: 3:00pm Appt w/ Joel Klein ( ) 5:00pm Appt w/Todd Meister ( ) EFTA00388524
+
+[PDF](pdfs/mette/EFTA00388524.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388524.pdf)
+
+---
+
+### 2013-06-26T17:54:11+00:00
+
+**From:** Jeffrey Epstein <jeevacation@grnail.com>
+
+**To:** Lesley Groff
+
+Subject: Re: tomorrow?
+
+ok
+
+[PDF](pdfs/mette/EFTA00388488.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388488.pdf)
+
+---
+
+### 2013-06-26T17:53:00+00:00
+
+**From:** Jeffrey Epstein <jeevacation@grnail.com>
+
+**To:** Lesley Groff
+
+Subject: Re: tomorrow?
+
+yes
+
+[PDF](pdfs/mette/EFTA00388486.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388486.pdf)
+
+---
+
 ### 2013-06-26T14:19:47+00:00
 
 **From:** Lesley Groff
@@ -1551,6 +2741,20 @@ Subject: Re: Jeffrey Epstein
 ok perfect! thank you for letting me know
 
 [PDF](pdfs/kronprinsessen/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
+
+---
+
+### 2013-06-26T14:19:47+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+Subject: Re: Jeffrey Epstein
+
+ok perfect! thank you for letting me know
+
+[PDF](pdfs/mette/EFTA00388401.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388401.pdf)
 
 ---
 
@@ -1593,6 +2797,20 @@ Subject: Re: Jeffrey Epstein
 Thx. I will try. I'm emailing directly with Jeffrey. Mm ➢en 26. juni 2013 kl. 15:45 skrev Lesley Groff > Hello Princess Mette....just following up to see if you might be available to come see Jeffrey tomorrow, Thursday June 27? Please let me know if it works for you! > 9 East 71st Street between 5th and Madison •> Thank you! Lesley > Assistant to Jeffrey Epstein EFTA00388387
 
 [PDF](pdfs/kronprinsessen/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
+
+---
+
+### 2013-06-26T13:47:15+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Lesley Groff <MINIII >
+
+Subject: Re: Jeffrey Epstein
+
+Thx. I will try. I'm emailing directly with Jeffrey. Mm ➢en 26. juni 2013 kl. 15:45 skrev Lesley Groff > Hello Princess Mette....just following up to see if you might be available to come see Jeffrey tomorrow, Thursday June 27? Please let me know if it works for you! > 9 East 71st Street between 5th and Madison •> Thank you! Lesley > Assistant to Jeffrey Epstein EFTA00388387
+
+[PDF](pdfs/mette/EFTA00388387.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388387.pdf)
 
 ---
 
@@ -1666,6 +2884,118 @@ Are you home over the weekend ? Sunday works best for me EFTA_R1_00448448 EFTA01
 
 ---
 
+### 2013-06-25T21:00:12+00:00
+
+**From:** Lesley Groff
+
+**To:** Epstein Jeffrey <jeevacation@grnail.corn>
+
+Subject: Schedule
+
+Tonight: 6:30pm Patrick to come cut hair (Jena to Pay for cut!) 7:00pm Appt w/Julian Leese WED. JUNE 26, 2013 NY 4:00pm Appt w/David Mitchell 5:00pm Appt w/Reid Weingarten (Assistant, Pamela. 7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the WILL CALL Window. TAKE 2 FORMS of ID! THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 EFTA00963740 TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply) 3:00pm Appt w/ Joel Klein 5:00pm Appt w/Todd Meister FRI. JUNE 28, 2013 NY-HARVARD-LSJ GO TO HARVARD! TBD Flyf rom NY to Cambridge Joi Ito willf ly with Jeffrey ■ Martin Nowak's Institute TBD Appt w/Ed Boyden TBD TENTATIVE Appt w/Neil Gershenfeld (Assistant is: Theresa Tomic EFTA00963741 Up to 11:45am Joichi Ito IS Available at his Media Lab at MIT (Joi has an appt at noon) t= 75 Amherst Street, secondf loor in room Danielle Nadeau < cell TBD TENTATIVE Appt w/George Church's Genome Stafff or Skin Cell Test 1:00pm Appt w/Mike Hopkins 2:00pm Appt w/Hemy Rosovsky 3:00pm Appt w/Martin Nowak SAT JUNE 29. 2013 LSJ Reminder: Touch base w/Whitfield Diffie SUN. JUNE 30, 2013 LSJ EFTA00963742
+
+[PDF](pdfs/mette/EFTA00963740.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963740.pdf)
+
+---
+
+### 2013-06-25T21:00:12+00:00
+
+**From:** MMI >
+
+**To:** Epstein Jeffrey <jeevacation@gmail.com>
+
+Subject: Schedule
+
+Tonight: 6:30pm Patrick to come cut hair to Pay for cull) 7:00pm Appt w/Julian Leese WED. JUNE 26, 2013 NY 4:00pm Appt w/David Mitchell 5:00pm Appt w/Reid Weingarten (Assistant, Pamela: 7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the WILL CALL Window. TAKE 2 FORMS of ID! 175 Eighth Avenue THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 EFTA00388332 TBD TENTATIVE Appt w/The Princess Mette (awaking Reply) 3:00pm Appt w/ Joel Klein ( 5:00pm Appt w/Todd Meister FRI. JUNE 28, 2013 NY-HARVARD-LSJ GO TO HARVARD! TBD Flyf rom NY to Cambridge Joi Ito willf ly with Jeffrey ( 1( Martin Nowak's Institute 1 Brattle Square, Suite 6 )( TBD Appt w/Ed Boyden ( TBD TENTATIVE Appt w/Neil Gershenfeld (Assistant is: Theresa Tomic EFTA00388333 Up to 11:45am Joichi Ito IS Available at his Media Lab at MIT (Joi has an appt at noon) 75 Amherst Street, secondf loor in room 245 Cambridge, MA 02139 Danielle Nadeau < cell TBD TENTATIVE Appt w/George Church's Genome Stafff or Skin Cell Test 1:00pm Appt w/Mike Hopkins 2:00pm Appt w/Hemy Rosovsky ( 3:00pm Appt w/Martin Nowak (1 SAT JUNE 29. 2013 LSJ )(1 Reminder: Touch base w/Whiffleld Diffie ( SUN. JUNE 30, 2013 LSJ EFTA00388334
+
+[PDF](pdfs/mette/EFTA00388332.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388332.pdf)
+
+---
+
+### 2013-06-25T16:03:34+00:00
+
+**From:** Lesley Groff <1
+
+**To:** Epstein Jeffrey <jeevacation@grnail.corn>
+
+Subject: Dan Rosenberg
+
+Dan Rosenberg just called to follow up regarding a meeting with you and the 2 people you thought interesting...He is asking if we could give him a few days/times and he will try to coordinate. Do you wish me to try and organize a meeting with Dan and the 2 people? 1:00pm Appt with 1:30am Appt wi 2:00pm Appt friend, 3:00pm Appt w/Rich and Darren 4:00pm Appt w/Barbro Ehnbom 5:15pm Appt w/Paul Morris 6:30pm Appt w/Julian Leese a WED. JUNE 26, 2013 NY TBD Hopefully meet w/Reid Weingarten 4:00pm Appt w/David Mitchell EFTA00388630 7:00pm (ish) Haircut w/Patrick at the house 7:30pm Go see Savion Glover at the Joyce Theater (Tickets held at the WILL CALL Window. TAKE 2 FORMS of ID! 175 Eighth Avenue THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply) 3:00pm Appt w/ Joel Klein ( ) 5:00pm Appt w/Todd Meister ( ) EFTA00388631
+
+[PDF](pdfs/mette/EFTA00388630.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388630.pdf)
+
+---
+
+### 2013-06-24T20:53:14+00:00
+
+**From:** Lesley Groff <
+
+**To:** Epstein Jeffrey <jeevacation@grnail.corn>
+
+Subject: Schedule
+
+Tonight: 5:30pm Appt wiles Staley (212-905-3948) 7:00pm Dinner w/Pablos Holman & David Blaine will stop by toward end of dinner TBD Ito?a) Joi will text your cell later! TUES JUNE 25, 2013 NY Reminder: Jerry Barton to stay in apt 8A June 25-27 Reminder: Call Tommy Mottolci Reminder: David Schulohof Reminder: Dan Rosenberg, with In Venture Entertainment, is hoping to meet with JE today! Reminder: Steam Service to return today at 8am TBD Meet w/Julian Leese today or tomorrow, 8:30am Breakfast w/Leon Black 10:30am Appt w/ friend, EFTA00963628 11:30am Appt 1:00pm Appt with 2:00pm Appt w/Rich and Darren 4:00pm Appt w/Barbro Ehnbom 5-5:30pm Appt w/Pattl Morris WED. JUNE 26, 2013 NY TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday TBD Hopefully meet w/Reid Weingarten 4:00pm Appt tv/David Mitchell 7:00pm (ish) Haircut w/Patrick at the house THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 TBD TENTATIVE Appt w/The Princess Mette (awaking Reply) EFTA00963629 3:00pm Appt w/ Joel Klein 5:00pm Appt w/Todd Meister FRI. JUNE 28, 2013 NY-HARVARD-LSJ GO TO HARVARD! TED Flyf rom NY to Cambridge Martin Nowak's Institute 10:45am Appt w/Joichi Ito (Joi must be back at the lab at noon) 1:00pm Appt w/Mike Hopkins 2:00pm Appt w/Hemy Rosovsky 3:00pm Appt w/Martin Nowak SAT. JUNE 29. 2013 LSJ SUN. JUNE 30, 2013 LSJ EFTA00963630 - EFTA00963631
+
+[PDF](pdfs/mette/EFTA00963628.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00963628.pdf)
+
+---
+
+### 2013-06-24T20:53:14+00:00
+
+**From:** Lesley Groff <MIMIII >
+
+**To:** Epstein Jeffrey <jeevacation@gmail.corn>
+
+Subject: Schedule
+
+Tonight: 5:30pm Appt w/Jes Staley (a) 7:00pm Dinner w/Pablos Holman (a) & a David Blaine will stop by toward end of dinner( TBD Jai Ito? a) Joi will text your cell later! TUES JUNE 25, 2013 NY Reminder: Jerry Barton to stay in apt 8A June 25-27 (a) Reminder: Call Tommy Mottola (-o) Reminder: David Schulohof Reminder Dan Rosenberg, with In Venture Entertainment, is hoping to meet with JE today! Reminder: Steam Service to return today at 8am TBD Meet w/Julian Leese today or tomorrow a 8:30am Breakfast w/Leon Black (a) 10:30am Appt friend, EFTA00388577 d 11:30am Appt 1:00pm Appt with 2:00pm Appt w/Rich and Darren 4:00pm Appt w/Barbro Ehnbom 5-5:30pm Appt w/Paul Morris WED. JUNE 26, 2013 NY TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday a TBD Hopefully meet w/Reid Weingarten ( ci 4:00pm Appt tv/David Mitchell ( 7:00pm (ish) Haircut w/Patrick at the house THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply) EFTA00388578 3:00pm Appt w/ Joel Klein ( ) 5:00pm Appt w/Todd Meister ( ) FRI. JUNE 28, 2013 NY-HARVARD-LSJ GO TO HARVARD! TED Flyf rom NY to Cambridge Martin Nowak's Institute 1 Brattle Square, Suite 6 10:45am Appt w/Joichi Ito (Joi must be back at the lab at noon) 1:00pm Appt w/Mike Hopkins 2:00pm Appt w/Hemy Rosovsky ( ) 3:00pm Appt w/Martin Nowak SAT. JUNE 29. 2013 LSJ SUN. JUNE 30, 2013 LSJ EFTA00388579 - EFTA00388580
+
+[PDF](pdfs/mette/EFTA00388577.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388577.pdf)
+
+---
+
+### 2013-06-24T18:14:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Epstein Jeffrey
+
+Subject: Todd Meister
+
+Cc: Lyn & Jojo fontanilla; Jojo fontanilla; Rich Barnett Todd Meister is confirmed to come see you at 5pm on Thursday THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply) 3:00pm Appt w/ Joel Klein 5:00pm Appt w/Todd Meister EFTA_R1_01408885 EFTA02387451
+
+[PDF](pdfs/mette/EFTA02387451.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02387451.pdf)
+
+---
+
+### 2013-06-24T18:13:34+00:00
+
+**From:** Lesley Groff <MIMIII >
+
+**To:** Epstein Jeffrey <jeevacation@gmail.corn>
+
+Subject: Todd Meister
+
+Todd Meister is confirmed to come see you at 5pm on Thursday TM RS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 TBD TENTATIVE Appt w/The Princess Mette (awaiting Reply) 3:00pm Appt w/ Joel Klein ( ) 5:00pm Appt w/Todd Meister ( ) EFTA00388791
+
+[PDF](pdfs/mette/EFTA00388791.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388791.pdf)
+
+---
+
+### 2013-06-22T11:51:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein CC
+
+Subject: Princess Mette
+
+Princess Mette has answered that she is not sure if 1pm on Monday will =ork yet and she will have to get back to me.=?xml version=.0" encoding=TF-8"?> <!DOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version=.0"> <dict> <key>conversation-id</key> <integer>258959</integer> <key>date-last-viewed</key> <integer>O</integer> <key>date-received</key> <integer>1371901873</integer> <key>flags</key> <integer>8623750145</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>315164</string> </dict> </plist> 1 EFTA_R1_01739265 EFTA02570971
+
+[PDF](pdfs/mette/EFTA02570971.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02570971.pdf)
+
+---
+
 ### 2013-06-22T11:50:39+00:00
 
 **From:** Lesley Groff <a>
@@ -1694,6 +3024,48 @@ To: Cc: "H. K.H. Kronprinsessen" <I MM> I think she has TGE wrong Monday , ask h
 
 ---
 
+### 2013-06-22T10:05:48+00:00
+
+**From:** Jeffrey Epstein leevacation@gmail.com>
+
+**To:** H.K.H. Mette Kronprinsessen
+
+Subject: Re: Princess Mette
+
+To: Cc: "H. K.H. Kronprinsessen" <I MM> I think she has TGE wrong Monday , ask her if this thurs works
+
+[PDF](pdfs/mette/EFTA02135894.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135894.pdf)
+
+---
+
+### 2013-06-21T20:52:18+00:00
+
+**From:** Lesley Groff <MIIMIlle
+
+**To:** Jeffrey Epstein CC <jeevacation@gmail.com>
+
+Subject: Schedule
+
+SAT JUNE 22, 2013 LSJ 3-4:00pm Sultan to arrive 577' via private plane SUN. JUNE 23, 2013 LSJ MON. JUNE,14, 2013 LSJ-NY 5th Reminder: Black Hat Convention July Reminder: mon leon steve tisch , hanson, todd, , fancelli Reminder: Call Tommy Mottola (-o) Reminder: David Schulohof Reminder: David Blaine ( ) 1:00pm TENTATIVE Appt w/The Princess Mate (awaking Reply) 2:00pm Appt waM friend, 3:00pm w/David Schulhof (Awaiting Reply) 4:15pm Appt w/Mort Zuckerman at 71st EFTA00388681 7:00pm Dinner w/Pablos Holman ( ) TUES JUNE 25, 2013 NY Reminder: Jerry Barton to stay in apt 8A June 25-27 ( ) Reminder: Call Tommy Mottola an) Reminder: David Schulohof Reminder: Dan Rosenberg, with In Venture Entertainment, is hoping to meet with JE today! 0 Reminder: Steam Service to return today at 8am 8:30am Breakfast livLeon Black ( ) TBD Meet w/Julian Leese today or tomorrow a 2:00pm Appt w/Rich and Darren 4:00pm Appt w/Barbro Ehnbom ( ) 5-5:30pm Appt w/Paul Morris WED. JUNE 26, 2013 NY TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday a EFTA00388682 TBD Hopefully meet w/Reid Weingarten (i ci 2:00pm TENTATIVE Appt w/Todd Meister 4:00pm Appt w/David Mitchell ( 7:00pm ash) Haircut w/Patrick at the house THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 FRI. JUNE 28, 2013 NY-HARVARD-LSJ GO TO HARVARD! TBD Flyf rom NY to Cambridge Martin Nowak's Institute 1 Brattle Square, Suite 6 10:45am Appt w/Joichi Ito (Joi must be back at the lab at noon) (I 1:00pm TENTATIVE Appt w/Mike Hopkins EFTA00388683 2:00pm Appt w/Hemy Rosovsky (MM) 3:00pm Appt w/Martin Nowak (. .) SAT JUNE 29. 2013 LSJ SUN. JUNE 30, 2013 LSJ EFTA00388684
+
+[PDF](pdfs/mette/EFTA00388681.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388681.pdf)
+
+---
+
+### 2013-06-21T20:52:18+00:00
+
+**From:** Lesley Groff <MIIMIlle
+
+**To:** Jeffrey Epstein CC <jeevacation@gmail.com>
+
+Subject: Schedule
+
+SAT JUNE 22, 2013 LSJ 3-4:00pm Sultan to arrive 577' via private plane SUN. JUNE 23, 2013 LSJ MON. JUNE,14, 2013 LSJ-NY Reminder: Black Hat Convention July 5th Reminder: mon leon steve tisch , hanson, todd, jes, fancelli Reminder: Call Tommy Mottola (-o) Reminder: David Schulohof Reminder: David Blaine ( ) 1:00pm TENTATIVE Appt w/The Princess Mate (awaking Reply) 2:00pm Appt friend, 3:00pm w/David Schulhof (Awaiting Reply) 4:15pm Appt w/Mort Zuckerman at 71st EFTA00691748 7:00pm Dinner w/Pablos Holman ( ) TUES JUNE 25, 2013 NY Reminder: Jerry Barton to stay in apt June 25-27 ( ) Reminder: Call Tommy Mottola a Reminder: David Schulohof Reminder: Dan Rosenberg, with In Venture Entertainment, is hoping to meet with JE today! 0 Reminder: Steam Service to return today at 8am 8:30am Breakfast livLeon Black ( ) TBD Meet w/Julian Leese today or tomorrow ( ) 2:00pm Appt w/Rich and Darren 4:00pm Appt w/Barbro Ehnbom ( ) 5-5:30pm Appt w/Paul Morris WED. JUNE 26, 2013 NY TBD Possibly meet w/Julian Leese today ify ou did not meet with him yesterday EFTA00691749 TBD Hopefully meet w/Reid Weingarten ( ci 2:00pm TENTATIVE Appt w/Todd Meister 4:00pm Appt w/David Mitchell ( 7:00pm (ish) Haircut w/Patrick at the house THURS. JUNE 27, 2013 NY Reminder: Janusz on holiday June 27-30 FRI. JUNE 28, 2013 NY-HARVARD-LSJ GO TO HARVARD! TBD Flyf rom IVY to Cambridge Martin Nowak's Institute 10:45am Appt w/Joichi Ito (Joi must be back at the lab at noon) (I 1:00pnt TENTATIVE Appt w/Mike Hopkins EFTA00691750 2:00pm Appt w/Hemy Rosovsky (MM) 3:00pm Appt w/Martin Nowak (. .) SAT JUNE 29. 2013 LSJ SUN. JUNE 30, 2013 LSJ EFTA00691751
+
+[PDF](pdfs/mette/EFTA00691748.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00691748.pdf)
+
+---
+
 ### 2013-06-21T14:25:26+00:00
 
 **From:** Lesley Groff <Ma>
@@ -1708,6 +3080,20 @@ Sorry to bother...but might 1pm
 
 ---
 
+### 2013-06-21T14:22:11+00:00
+
+**From:** Lesley Groff
+
+**To:** lesley Groff(
+
+Subject: Alert - can Princess Mette see Je at 3pm on MOnday? can I contact Mette herself?
+
+June 21, 2013 7:00 AM : can Princess Mette see Je at 3pm on MOnday? can I contact Mette herself? EFTA_R1_00783315 EFTA02135306
+
+[PDF](pdfs/mette/EFTA02135306.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02135306.pdf)
+
+---
+
 ### 2013-06-20T18:40:16+00:00
 
 **From:** Lesley Groff
@@ -1719,6 +3105,34 @@ Subject: Re: Jeffrey Epstein
 Would 1pm
 
 [PDF](pdfs/kpm/EFTA00388876.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388876.pdf)
+
+---
+
+### 2013-06-20T18:39:43+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Lesley Groff
+
+Subject: Re: Princess FYI
+
+move princess to 1 and david to 3
+
+[PDF](pdfs/mette/EFTA00388871.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00388871.pdf)
+
+---
+
+### 2013-06-20T18:38:20+00:00
+
+**From:** Lesley Groff
+
+**To:** Jefffrey Epstein <jeevacation@gmail.com>
+
+Subject: Princess FYI
+
+I had asked the Princess if she could meet you on Monday June 24th at 3pm and she finally replied back that she departs for Norway at 4pm so 3pm will unfortunately be too late. I have asked her to please let me know what time would be good for her as I know you would really like to see her. Still awaiting a reply... 1:00pm Lunch w/David Schulhof ( 2:00pm Appt TBD apps w/Princess Mette (SHE DEPARTS FOR NORWAYA T 4PM, ASKING HER IF EARLIER WILL WORK) 4:15pm Appt w/Mort Zuckerman at 7P ( 5:30pm Appt w/Francisco D 'Agostino ( 7:00pm Dinner w/Pablos Holman EFTA00364954
+
+[PDF](pdfs/mette/EFTA00364954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00364954.pdf)
 
 ---
 
@@ -1859,6 +3273,34 @@ Subject: Re:
 24
 
 [PDF](pdfs/kpm/EFTA01967440.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01967440.pdf)
+
+---
+
+### 2013-06-03T02:26:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein
+
+Subject: RE:
+
+A lot of fun here.</=:p> <=p> We did not go surfing but=visiting various temples, sites etc. Some parts are spectacular. <=p> The only problem is that = have never been so disconnected. <=p> The whole country does no= allow cell phone roaming so no phones work here. <=p> Also wife is only at the =irport and at the main hotel — no where else. <=p> I was talking about you a=LOT with Mette. You have been missed!!!! <=p> I am leaving tmr night fo= Tokyo. <=p> Talk soon <=p> B From: Jeffre= Epstein [mailto:jeevacation@gmail.comj Sent: Sunday, June 2, 2013 7:33 AM To: Boris Nikolic Subject: EFTA_R1_00061000 EFTA01758218 how is the surfing
+
+[PDF](pdfs/mette/EFTA01758218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01758218.pdf)
+
+---
+
+### 2013-06-03T02:25:59+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+A lot of fun here. We did not go surfing but visiting various temples, sites etc. Some parts are spectacular. The only problem is that I have never been so disconnected. The whole country does not allow cell phone roaming so no phones work here. Also wifi is only at the airport and at the main hotel — no where else. I was talking about you a LOT with Mette. You have been missed!!!! I am leaving tmr night for Tokyo. Talk soon B From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Sunday, lune 2, 2013 7:33 AM To: Boris Nikolic Subject: how is the surfing
+
+[PDF](pdfs/mette/EFTA00961619.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00961619.pdf)
 
 ---
 
@@ -2125,6 +3567,76 @@ Subject:
 why have i not heard from you, ?
 
 [PDF](pdfs/kronprinsessen/EFTA00874612.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00874612.pdf)
+
+---
+
+### 2013-04-10T13:24:23+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+call now?
+
+[PDF](pdfs/mette/EFTA00958153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958153.pdf)
+
+---
+
+### 2013-04-10T13:23:18+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein[jeevacation©gmail.com]
+
+Subject: RE:
+
+Yes —any time you can talk. My mtg starts at 11am From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Wednesday, April 10, 2013 9:23 AM To: Boris Nikolic Subject: lets talk salina chow.? house. ? jawbone? bill schedule ? tcrje, ? mettc? melz
+
+[PDF](pdfs/mette/EFTA01900452.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01900452.pdf)
+
+---
+
+### 2013-04-10T13:23:18+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+Yes—any time you can talk. My mtg starts at 11am From: Jeffrey Epstein [mailto:jeeyacation@gmail.com] Sent: Wednesday, April 10, 2013 9:23 AM To: Boris Nikolic Subject: lets talk salina chow.? house. ? jawbone? bill schedule ? terje, ? mette? melz
+
+[PDF](pdfs/mette/EFTA00958152.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958152.pdf)
+
+---
+
+### 2013-04-10T13:22:31+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+lets talk salina chow.? house. ? jawbone? bill schedule ? tede, ? mette? melz
+
+[PDF](pdfs/mette/EFTA00958149.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00958149.pdf)
+
+---
+
+### 2013-04-10T09:23:00+00:00
+
+**From:** Jeffrey Epst
+
+**To:** Boris Nikolicti l
+
+Subject: Re:
+
+To: Boris Nikolic Subject lets talk salina chow.? house. ? jawbone? bill schedule ? terje, ? mette? melz ***********************************************************
+
+[PDF](pdfs/mette/EFTA01900538.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01900538.pdf)
 
 ---
 
@@ -2475,6 +3987,76 @@ Subject:
 im going to my ranch sat the 23 long beach the 25, you can fly the entire trip if you Ike
 
 [PDF](pdfs/kronprinsessen/EFTA00954490.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00954490.pdf)
+
+---
+
+### 2013-02-11T23:32:50+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+ok
+
+[PDF](pdfs/mette/EFTA00953985.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953985.pdf)
+
+---
+
+### 2013-02-11T23:31:08+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+At mtgs. will call you in 2h to discuss From: Jeffrey Epstein [mailto Sent: Monday, February 11, 2013 2:33 PM To: Boris Nikolic Subject: if you could give me an idea of 1 your schedule . i am going to pick you up and bring you. to ted. 2. i will arrange a charter home. 3, bill dinner 28 , march 1 others. 4 mette? do you want me to bring anyone else from ny? island trip with
+
+[PDF](pdfs/mette/EFTA00692700.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692700.pdf)
+
+---
+
+### 2013-02-11T22:33:06+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+if you could give me an idea of 1 your schedule . i am going to pick you up and bring you. to ted. 2. i will arrange a charter home, 3, bill dinner 28 , march 1 others. 4 mette? do you want me to bring anyone else from ny? island trip with meilinda?
+
+[PDF](pdfs/mette/EFTA00953982.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00953982.pdf)
+
+---
+
+### 2013-02-11T14:33:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+To: Boris Nikolic Subject: if you could give me an idea of 1 your schedule . i am going to pick you up and bring you. to ted. 2. i will arrange a charter home, 3, bill dinner 28 , march! others. 4 mette? do you want me to bring anyone else from ny? island trip with mcilinda?
+
+[PDF](pdfs/mette/EFTA01907090.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907090.pdf)
+
+---
+
+### 2013-02-11T14:33:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinijeevacationggmail.com]
+
+Subject: RE:
+
+To: Boris Nikolic Subject: if you could give me an idea of 1 your schedule . i am going to pick you up and bring you. to tcd. 2. i will arrange a charter home, 3, bill dinner 28 , march! others. 4 mette? do you want me to bring anyone else from ny? island trip with meilinda? ***********************************************************
+
+[PDF](pdfs/mette/EFTA01907018.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01907018.pdf)
 
 ---
 
@@ -2842,6 +4424,48 @@ Tried to call both of you. My problem got worse. Just changed flight back to Sea
 
 ---
 
+### 2013-01-11T00:02:00+00:00
+
+**From:** >
+
+**To:** Jeffrey
+
+Subject: Mette 2
+
+Attachments: photoJPG; Untitled attachment 00268.txt 1 EFTA_R1_01368240 EFTA02368863
+
+[PDF](pdfs/mette/EFTA02368863.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02368863.pdf)
+
+---
+
+### 2013-01-10T21:24:44+00:00
+
+**From:** Mcl
+
+**To:** Epstein Jeffrey <1
+
+Subject: Priv & ConfJan. 10-31
+
+Thurs. Jan. 10, 2012-LSJ to PB -Reminder: you must Re-Register at the Florida Stockade if you go to PB -Reminder: Boris in PB and to stay at PB house! (MM) 11:40 and to arrive PB via Delta #2395 12:00 JE-Wheels up to PB 1:45pm JE-Arrival at Galaxy Aviation, PBI 3:35 Karyna to Depart PB via Delta 1174 and arrive LGA at 6:25pm (Rec. Loc#COPTNC) Jojo to pick up Karyna from LGA 6:30 Phillipe at the house to cut hair: JE & Princess. 11:51pm Boris to arrive via UA1415. Janusz to pick him up and bring to house Fri. Jan. 11, 2012-PB -Reminder: Ehud Barak in NY Jan. llth -Reminder: Veronoia, Alexander, Prosperi, Joel Gogger -Reminder: Flu Shot -Reminder: Boris to depart PB today (what time?) EFTA00397930 1:00 Meeting w/Jack, Tonja and Fred at the PB House. Jack Goldberger: work, cell Tonja Haddad: work, cell Fred Haddad: work 1:00 Mette, Princess from Norway, to depart (Will Myoshin go with her?) Sat Jan. 12, 2012-PB -Reminder: Kevin McCarthy to be at his home in Carribean Jan. 12-24 ( ) -Reminder: Philippe in PB Sun. Jan. 13, 2012-PB to NY -Reminder: in an apt Jan. 13-19 -Reminder: Eduardo Teodorani to arrive NY Jan. 13th and would like to have dinner tonight. -Reminder: Thorbjoem Jagbland in St. Thomas ( ) Mon. Jan. 14, 2012-NY -Reminder: Call Mark Tramo this week (MM) 1:00 JE to arrive International Jet Interiors, from PB on Iglesias GIV plane 7:00 Dinner w/Dr. Magnani, Dr. Lamster & Dean Myers (Magnani: cell) ORDER TAKEOUT EFTA00397931 Tues. Jan. 15 2012-NY 9:00am Coffee w/Justin Nelson ( )( 12:30 Lunch w/Leon Botstein (Catherine, assistant: 1:45 Appt w/Ben Goertzel 5:30 Go meet David Gelernter to view his an: Shma/Listen: the Art of David Gelemter at Yeshiva University Museum, 15 West 16th Street d Wet Jan. 16, 2012-NY 10:30 Appt vv./David Mitchell ( ) 2:00 Appt w/Arda 4:30 Appt w/Paul Morris ( ) Thurs. Jan. 17 2012-NY -Reminder: ICaryna to take test 3:00 Appt w/Todd Meister ( ) EFTA00397932 Fri. Jan. 18, 2012-NY Sat. Jan. 19 2012-NY -Reminder: to depart today Sun. Jan. 20, 2012-NY ***Jeffrey's Birthday! *** -Reminder: Bobby Slayton to arrive today and stay in an apt. Mon. Jan. 21, 2012-NY -Reminder: Frederic Fekkai due back in NY today cell) Martin Luther King, Jr Day-Office and FTC Closed Tues. Jan. 22, 2012-NY -Reminder: Bobby Slayton says Lewis and maybe Robin Williams in NY around now Wed Jan. 23, 2012-NY -Reminder: World Economic Forum Annual Meeting 2013 at Davos, Jan. 23-27 -Reminder: Barak at Davos Jan. 23-27 12:00 Appt w/Larry Delson ( ) 7:00 Dinner w/Woody Allen, Bobby Slayton and Lewis Black. DINNER TO BE FROM DAVID BOULEE OR TAKE OUT Thurs. Jan. 24, 2012-NY to Paris EFTA00397933 -Reminder: Bobby Slayton to depart today -Reminder: you want to speak with Caroline Lang (Cell: -Reminder: Barak to be in Munich Jan. 19-21 7: I Opm JE and to depart via Air France #7 from JFK to Paris, Charles De Gaulle Rec. Fri. Jan. 25 2012-Paris -Reminder: Terje at Davos Jan. 25-27 8:25am JE and MI to arrive Charles De Gaulle Sat. Jan. 26, 2012-Paris Sun. Jan. 27, 2012-Paris -Reminder: Barak says he could come for the day if you are in Paris Jan. 27 or 28 -Reminder: Versailles Mon. Jan. 28, 2012- Paris -Reminder: Barak says he could come for the day if you are in Paris Jan. 27 or 28 -Reminder: Jerry Barton and his son to stay in ION Jan. 28-30 Tues. Jan. 29, 2012-Paris Wed. Jan. 30, 2012-Paris -Reminder: Jerry Barton & son to depart today EFTA00397934
+
+[PDF](pdfs/mette/EFTA00397930.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00397930.pdf)
+
+---
+
+### 2013-01-10T14:24:00+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** ; Richard Kahn;
+
+Subject: 
+
+mette will want peace and quiet, so lets leave her space,
+
+[PDF](pdfs/mette/EFTA02564708.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564708.pdf)
+
+---
+
 ### 2013-01-10T13:37:17+00:00
 
 **From:** H.K.H. Kronprinsessen
@@ -2853,6 +4477,20 @@ Subject: Re:
 Yes now i am
 
 [PDF](pdfs/kronprinsessen/EFTA00951940.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951940.pdf)
+
+---
+
+### 2013-01-10T11:49:50+00:00
+
+**From:** Google Calendar
+
+**To:** Lesley Grof
+
+Subject: Reminder: reminder: Mette, Princess from Nanny to depart the PB ho... @ Thu Jan 10 7am -
+
+7:30am more details s reminder: Mette, Princess from Norway to depart the PB house today When Thu Jan 10 7am — 7:30am Eastern Time Calendar Who Lesley Groff - organizer Invitation from Google Calendar You are receiving this email at the account because you are subscribed for reminders on calendar To stop receiving these notifications, please log in to https.//www.google.comicalendar, and change your notification settings for this calendar. EFTA_R1_00814143 EFTA02151115
+
+[PDF](pdfs/mette/EFTA02151115.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151115.pdf)
 
 ---
 
@@ -2968,6 +4606,62 @@ Jeffrey I will not call her It makes me feel uncomfortable I'll make your little
 
 ---
 
+### 2013-01-07T21:09:22+00:00
+
+**From:** Eva Dubin <
+
+**To:** Jeffrey <jeevacation@gmail.com>
+
+Subject: RE:
+
+Importance Normal Yes, it will be funny. Date: Mon, 7 Jan 2013 14:46:34 -0400 Subject: From: jeevacation@gmail.com To: mette will call tonight, it will be funny ***********************************************************
+
+[PDF](pdfs/mette/EFTA00693098.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00693098.pdf)
+
+---
+
+### 2013-01-07T18:46:34+00:00
+
+**From:** Eva Dubin
+
+**To:** jeevacation6gmail.comueevacation©gmail.cont Jeffreleevacationegmail.comj
+
+Subject: 
+
+From: 'ecvacation mail.com To: mette will call tonight, it will be funny
+
+[PDF](pdfs/mette/EFTA02032547.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02032547.pdf)
+
+---
+
+### 2013-01-07T18:46:34+00:00
+
+**From:** Eva Dubin
+
+**To:** Jeffreyfleevacation©gmail.com]
+
+Subject: 
+
+From: jeevacation gmail.com To: mette will call tonight, it will be funny
+
+[PDF](pdfs/mette/EFTA01912433.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912433.pdf)
+
+---
+
+### 2013-01-07T18:46:34+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Eva Dubin
+
+Subject: 
+
+mette will call tonight, it will be funny
+
+[PDF](pdfs/mette/EFTA00951375.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951375.pdf)
+
+---
+
 ### 2013-01-07T17:27:41+00:00
 
 **From:** Jeffrey Epstein <jeevacation@gmail.com>
@@ -2979,6 +4673,20 @@ Subject: Re:
 no, i land directly in palm beach, but i might go to miami late afternoon ,so lets coordinate
 
 [PDF](pdfs/kronprinsessen/EFTA00951367.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951367.pdf)
+
+---
+
+### 2013-01-07T17:26:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Epstein Jeffrey
+
+Subject: Mette/Dentist Andy Adelson?
+
+Did you wish me to pass along the dentist info to Mette and make an appt =or her to see Dr. Andy Adelson for Dr. Adelson ?xml version=.0" encoding=TF-8"?> <IDOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version=.0"> <dict> <key>conversation-id</key> <integer>241285</integer> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1357579545</integer> <key>flags</key> <integer>8623750145</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>268330</string> </dict> </plist> 1 EFTA_R1_01728351 EFTA02564516
+
+[PDF](pdfs/mette/EFTA02564516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564516.pdf)
 
 ---
 
@@ -3049,6 +4757,34 @@ Subject: Re:
 Im working out in yr gym will call u after
 
 [PDF](pdfs/kronprinsessen/EFTA00951351.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951351.pdf)
+
+---
+
+### 2013-01-07T14:51:00+00:00
+
+**From:** Lesley Groff <
+
+**To:** Epstein Jeffrey
+
+Subject: Princess Mette/dentist?
+
+Princess Mette is asking Janusz about setting up an appt tc with your dentist....please advise what dentist and if you would =ike me to make her an appt.=?xml version=.0" encoding=TF-8"?> <IDOCTYPE plist PUBLIC "- //Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version=.0"> <dict> <key>conversation-id</key> <integer>241275</integer> <key>date-last-viewed</key> <integer>O</integer> <key>date-received</key> <integer>1357570240</integer> <key>flags</key> <integer>8590195713</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>268267</string> </dict> </plist> 1 EFTA_R1_01727642 EFTA02564020
+
+[PDF](pdfs/mette/EFTA02564020.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564020.pdf)
+
+---
+
+### 2013-01-07T14:47:25+00:00
+
+**From:** Lesley Groff
+
+**To:** Janusz Banasiak
+
+Subject: Re: JE dentist
+
+hmmm, I know JE's dentist in NY but not in PB? I will ask JE...
+
+[PDF](pdfs/mette/EFTA02151061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02151061.pdf)
 
 ---
 
@@ -3133,6 +4869,90 @@ Subject: Re: Great to see u
 Jeffrey It has taken me some time to respond Because I was in some way so overwhelmed by emotion from your email I know it is silly to smoke It pulls me not only physically towards darkness Isn't it so telling that that I started smoking again exactly when I met him I appreciate the tenderness in your email So I followed up. The smoking course is booked for the week I get back I havent gotten the trainer in place yet but will do research in Miami so I will be ready to start when I get back I don't know if I told you but the doctor warned me about the smoking when he examined my lungs At first they thought it was a blot clot.. Only dark shadows from Small things I don't know the names of screaming for fresh air Jeffrey he made me feel like the most beautiful woman on earth I know I will have to find that somewhere else And I know the only answer is within Thank you for seeing me Mm
 
 [PDF](pdfs/kronprinsessen/EFTA00951170.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951170.pdf)
+
+---
+
+### 2013-01-05T19:36:47+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+III be there
+
+[PDF](pdfs/mette/EFTA00951153.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951153.pdf)
+
+---
+
+### 2013-01-05T18:23:25+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey <jeevacation@gmail.com>
+
+Subject: RE: RE:
+
+But if I am coming you must be there as well! From: Jeffrey [mailtoleevacation@gmall.com] Sent: Saturday, January 05, 2013 10:22 AM To: Boris Nikolic Subject: Re: RE: Great come stay Sony for all the typos .Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA00700010.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700010.pdf)
+
+---
+
+### 2013-01-05T18:22:09+00:00
+
+**From:** Jeffrey <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: RE:
+
+Great come stay Sony for all the typos .Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA00700009.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700009.pdf)
+
+---
+
+### 2013-01-05T18:13:15+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+Thank youl Will read the rest of documents, and go through numbers. Will call you tmr. Re the other issue — I could leave SF on Thursday after my board meeting and go to FLL or Miami — because of time difference and flights I would be arriving late — around midnight. We could all have breakfast next morning — I think Mette leaves that day? What do you think? Boris From: Jeffrey Epstein [mailtojeevacation@gmall.com] Sent: Saturday, January 05, 2013 10:06 AM To: Boris Nikolic Subject: if the fm investment doubles in three years. and thats, agressive, if these types of returns were ordinary, than thats all larson should be doing what happens. , how is my interest calculated, can i decide when to sell, when to value „ does it effect my other salary, ordinary income, makes little sense. , what if not public„ is it only on distrubutions. , bill should not be allowed to take it away, right now, 10 million profit, 5 per cent per year, three years, 1.5. off the top 30 % of the 8.5. left, s 2.55 ,million before tax. 1.25 after , so bill makes 7.5. and you take home 1,25. .. you should attempt to make it capital gains,? only for a fraud should it be withheld.
+
+[PDF](pdfs/mette/EFTA00700008.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00700008.pdf)
+
+---
+
+### 2013-01-05T10:22:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Boris Nikoli
+
+Subject: Re:
+
+To: Boris Nikolic Subject: Re: RE: Great come stay Sorry for all the typos .Sent from my iPhone On Jan 5, 2013, at 2:13 PM, Boris Nikolic ote: Thank you! Will read the rest of documents, and go through numbers. Will call you tmr. Re the other issue — I could leave SF on Thursday after my board meeting and go to Fit or Miami — because of time difference and flights I would be arriving late — around midnight. We could all have breakfast next morning — I think Mette leaves that day? What do you think? EFTA_R1_00349060 EFTA01911998 3or H From: Jeffrey Epstein [mailtoleevacation@gmail.com] Sent: Saturday, January 05, 2013 10:06 AM To: Boris Nikolic Subject: if the fin investment doubles in three years. and thats, agressive, if these types of returns were ordinary, than thats all !arson should be doing what happens. , how is my interest calculated, can i decide when to sell, when to value „ does it effect my other salary, ordinary income, makes little sense. , what if not public„ is it only on distrubutions. , bill should not be allowed to take it away, right now, 10 million profit, 5 per cent per year, three years, 1.5. off the top 30 % of the 8.5. left, s 2.55 ,million before tax. 1.25 after , so bill makes 7.5. and you take home 1,25. .. you should attempt to make it capital gains,? only for a fraud should it be withheld.
+
+[PDF](pdfs/mette/EFTA01911998.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911998.pdf)
+
+---
+
+### 2013-01-05T10:22:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Boris Nikoli
+
+Subject: Re:
+
+To: Boris Nikolic Subject: Re: RE: Great come stay Sorry for all the typos .Sent from my iPhone On Jan 5, 2013, at 2:13 PM, Boris Nikolic ote: Thank you! Will read the rest of documents, and go through numbers. Will call you tmr. Re the other issue — I could leave SF on Thursday after my board meeting and go to Fit or Miami — because of time difference and flights I would be arriving late — around midnight. We could all have breakfast next morning — I think Mette leaves that day? What do you think? EFTA_R1_00349060 EFTA01911998 3or H From: Jeffrey Epstein [mailtoleevacation@gmail.com] Sent: Saturday, January 05, 2013 10:06 AM To: Boris Nikolic Subject: if the fin investment doubles in three years. and thats, agressive, if these types of returns were ordinary, than thats all !arson should be doing what happens. , how is my interest calculated, can i decide when to sell, when to value „ does it effect my other salary, ordinary income, makes little sense. , what if not public„ is it only on distrubutions. , bill should not be allowed to take it away, right now, 10 million profit, 5 per cent per year, three years, 1.5. off the top 30 % of the 8.5. left, s 2.55 ,million before tax. 1.25 after , so bill makes 7.5. and you take home 1,25. .. you should attempt to make it capital gains,? only for a fraud should it be withheld.
+
+[PDF](pdfs/mette/EFTA01911998-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01911998-1.pdf)
 
 ---
 
@@ -3542,6 +5362,20 @@ super, thanks.
 
 ---
 
+### 2013-01-03T21:21:13+00:00
+
+**From:** Lesley Groff <a
+
+**To:** Myoshin Kelley czn ila>
+
+Subject: Re: Jeffrey Epstein
+
+super, thanks.
+
+[PDF](pdfs/mette/EFTA00398695.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398695.pdf)
+
+---
+
 ### 2013-01-03T21:19:21+00:00
 
 **From:** Myoshin Kelley <Ma>
@@ -3570,6 +5404,34 @@ My cell number is Best wishes, Myoshin
 
 ---
 
+### 2013-01-03T21:19:21+00:00
+
+**From:** Myoshin Kelley <Ma>
+
+**To:** MMI >
+
+Subject: Re: Jeffrey Epstein
+
+My cell number is Best wishes, Myoshin
+
+[PDF](pdfs/mette/EFTA00558730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00558730.pdf)
+
+---
+
+### 2013-01-03T21:19:21+00:00
+
+**From:** Myoshin Kelley <Ma>
+
+**To:** _=
+
+Subject: Re: Jeffrey Epstein
+
+My cell number is Best wishes, Myoshin
+
+[PDF](pdfs/mette/EFTA00398691.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398691.pdf)
+
+---
+
 ### 2013-01-03T21:19:00+00:00
 
 **From:** Myoshin Kelley
@@ -3581,6 +5443,20 @@ Subject: Re: Jeffrey Epstein
 Cc: H.K.H. Kronprinsessen; Janusz Banasiak; My =ell number i Best =ishes, Myoshin
 
 [PDF](pdfs/kronprinsessen/EFTA02321935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02321935.pdf)
+
+---
+
+### 2013-01-03T21:19:00+00:00
+
+**From:** Myoshin Kelley
+
+**To:** Lesley Groff
+
+Subject: Re: Jeffrey Epstein
+
+Cc: H.K.H. Kronprinsessen; Janusz Banasiak; My =ell number i Best =ishes, Myoshin
+
+[PDF](pdfs/mette/EFTA02321935.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02321935.pdf)
 
 ---
 
@@ -3598,6 +5474,20 @@ I will be arriving in Miami at 2:30pm and thought I could make my way to Palm Be
 
 ---
 
+### 2013-01-03T19:17:01+00:00
+
+**From:** Myoshin Kelley <Ma>
+
+**To:** _=
+
+Subject: Re: Jeffrey Epstein
+
+I will be arriving in Miami at 2:30pm and thought I could make my way to Palm Beach if this works for your house staff? If so, could you please send me the address. Many thanks, Myoshin
+
+[PDF](pdfs/mette/EFTA00398660.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398660.pdf)
+
+---
+
 ### 2013-01-03T16:07:18+00:00
 
 **From:** ilmings...
@@ -3609,6 +5499,20 @@ Subject: Re: Jeffrey Epstein
 update received tnx
 
 [PDF](pdfs/kronprinsessen/EFTA02150975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150975.pdf)
+
+---
+
+### 2013-01-03T16:07:18+00:00
+
+**From:** ilmings...
+
+**To:** Lesley Gra
+
+Subject: Re: Jeffrey Epstein
+
+update received tnx
+
+[PDF](pdfs/mette/EFTA02150975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02150975.pdf)
 
 ---
 
@@ -3626,6 +5530,20 @@ Excellent!! (and you are so very welcome)
 
 ---
 
+### 2013-01-03T16:05:19+00:00
+
+**From:** Lesley Groff
+
+**To:** H.K.H. Kronprinsessen
+
+Subject: Re: Jeffrey Epstein
+
+Excellent!! (and you are so very welcome)
+
+[PDF](pdfs/mette/EFTA00365190.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00365190.pdf)
+
+---
+
 ### 2013-01-03T16:04:02+00:00
 
 **From:** H.K.H. Kronprinsessen
@@ -3637,6 +5555,20 @@ Subject: Re: Jeffrey Epstein
 Thank you so much for your kind help!! Sun & sand from here
 
 [PDF](pdfs/kronprinsessen/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
+
+---
+
+### 2013-01-03T16:04:02+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Lesley Groff <MINIII >
+
+Subject: Re: Jeffrey Epstein
+
+Thank you so much for your kind help!! Sun & sand from here
+
+[PDF](pdfs/mette/EFTA00398584.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398584.pdf)
 
 ---
 
@@ -3654,6 +5586,20 @@ Yes my flight arrives at seven pm on sunday the 6th From st Maarten. I think Ame
 
 ---
 
+### 2013-01-03T15:41:40+00:00
+
+**From:** H.K.H. Kronprinsessen" <MIIIMM>
+
+**To:** Lesley Groff <MINIII >
+
+Subject: Re: Jeffrey Epstein
+
+Yes my flight arrives at seven pm on sunday the 6th From st Maarten. I think American airlines . I'll be meeting my security at the airport. He will be staying at a hotel in palm beach. My cell number is I11 call the driver when I land at the airport. Myoshin Kelley my teacher is arriving from somewhere in Florida where she is in retreat at the moment I'll copy her email in above. She will be able to give you info on her arrival. Hope this gives some clarity., sorry this has taken some time. Holiday life .... Warm regards Mette
+
+[PDF](pdfs/mette/EFTA00398579.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398579.pdf)
+
+---
+
 ### 2013-01-03T15:25:53+00:00
 
 **From:** =cMIElla
@@ -3665,6 +5611,20 @@ Subject: Re: Jeffrey Epstein
 Good morning Mette...j ust following up...might you be able to pass along your flight details, your cell number and let us know when your teacher, will be arriving so the house staff can be prepared for her? Thank you! Assistant to Jeffrey Epstein
 
 [PDF](pdfs/kronprinsessen/EFTA00398576.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398576.pdf)
+
+---
+
+### 2013-01-03T15:25:53+00:00
+
+**From:** =cMIElla
+
+**To:** H.K.H. Kronprinsessen
+
+Subject: Re: Jeffrey Epstein
+
+Good morning Mette...j ust following up...might you be able to pass along your flight details, your cell number and let us know when your teacher, will be arriving so the house staff can be prepared for her? Thank you! Assistant to Jeffrey Epstein
+
+[PDF](pdfs/mette/EFTA00398576.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398576.pdf)
 
 ---
 
@@ -3721,6 +5681,20 @@ Subject: Re: Jeffrey Epstein
 Excellent! Thank you...if you could also give us the arrival time of Ms. Kelley's flight it would be super so the house staff will know around when to expect her. Thanks,
 
 [PDF](pdfs/kronprinsessen/EFTA00398536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398536.pdf)
+
+---
+
+### 2013-01-02T15:19:42+00:00
+
+**From:** `MIEle
+
+**To:** H.K.H. Kronprinsessen
+
+Subject: Re: Jeffrey Epstein
+
+Excellent! Thank you...if you could also give us the arrival time of Ms. Kelley's flight it would be super so the house staff will know around when to expect her. Thanks,
+
+[PDF](pdfs/mette/EFTA00398536.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398536.pdf)
 
 ---
 
@@ -4228,6 +6202,20 @@ To: Boris Nikolic Subject: Re: i will be there from 10-13
 
 ---
 
+### 2012-12-28T22:23:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinueevacation©gmail.com]
+
+Subject: RE: Re:
+
+To: Boris Nikolic Subject: Re: i will be there from 10-13
+
+[PDF](pdfs/mette/EFTA01912954.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912954.pdf)
+
+---
+
 ### 2012-12-28T18:39:18+00:00
 
 **From:** H.K.H. Kronprinsessen" < >
@@ -4256,6 +6244,20 @@ To: Boris Nikolic Cc: Jeffrey Epstein Boris if you stand me up
 
 ---
 
+### 2012-12-28T17:31:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** H.K.H. Kronprinsesse
+
+Subject: Re: RE: Re:
+
+To: Boris Nikolic Cc: Jeffrey Epstein Boris if you stand me up
+
+[PDF](pdfs/mette/EFTA01913175.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913175.pdf)
+
+---
+
 ### 2012-12-28T16:51:00+00:00
 
 **From:** Jeffrey Epstein [mailto:jeevacation@gmail.com]
@@ -4267,6 +6269,20 @@ Subject: Re:
 To: H.K.H. Kronprinsessen Cc: Boris Nikolic Breakfast??
 
 [PDF](pdfs/kronprinsessen/EFTA01913227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913227.pdf)
+
+---
+
+### 2012-12-28T16:51:00+00:00
+
+**From:** Jeffrey Epstein [mailto:jeevacation@gmail.com]
+
+**To:** Boris NikolicIWIM
+
+Subject: Re:
+
+To: H.K.H. Kronprinsessen Cc: Boris Nikolic Breakfast??
+
+[PDF](pdfs/mette/EFTA01913227.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01913227.pdf)
 
 ---
 
@@ -4284,6 +6300,20 @@ I would never ever stand my only Princess ;) Send me your details — your dates
 
 ---
 
+### 2012-12-28T14:35:26+00:00
+
+**From:** Boris Nikolic
+
+**To:** H.K.H. Kronprinsessen
+
+Subject: RE: RE: Re:
+
+I would never ever stand my only Princess ;) Send me your details — your dates asap Miss you! B From: H.K.H. Kronprinsessen [mallto: Sent: Friday, December 28, 2012 5:31 PM To: Boris Nikolic Cc: Jeffrey Epstein Subject: Re: RE: Re: Boris if you stand me up
+
+[PDF](pdfs/mette/EFTA00668540.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00668540.pdf)
+
+---
+
 ### 2012-12-28T14:24:59+00:00
 
 **From:** Boris Nikolic
@@ -4295,6 +6325,20 @@ Subject: RE: Re:
 From where are you arriving? NYC? From: Jeffrey Epstein [mailto:jeevacation@gmall.com] Sent: Friday, December 28, 2012 10:23 PM To: Boris Nikolic Subject: Re: i will be there from 10-13
 
 [PDF](pdfs/kronprinsessen/EFTA00692206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692206.pdf)
+
+---
+
+### 2012-12-28T14:24:59+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE: Re:
+
+From where are you arriving? NYC? From: Jeffrey Epstein [mailto:jeevacation@gmall.com] Sent: Friday, December 28, 2012 10:23 PM To: Boris Nikolic Subject: Re: i will be there from 10-13
+
+[PDF](pdfs/mette/EFTA00692206.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692206.pdf)
 
 ---
 
@@ -4312,6 +6356,20 @@ i will be there from 10-13
 
 ---
 
+### 2012-12-28T14:22:38+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+i will be there from 10-13
+
+[PDF](pdfs/mette/EFTA00951089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00951089.pdf)
+
+---
+
 ### 2012-12-28T14:16:00+00:00
 
 **From:** Boris Nikolic
@@ -4323,6 +6381,20 @@ Subject: RE: Re:
 Please let me see what ca= I do . <=p> Mette — would break=ast work for you? Can you leave later in a day. <=p> Please send me dates when=you are arrive/leave! <=p> Would LOVE to see you bot=! <=p> B <=p> From: Jeffrey =pstein Imailto:jeevacation@gmailcoml Sent: Friday, December 28, 2012 4:51 PM To: H.K.H. Kronprinsessen Cc: Boris Nikolic Subject: Re: Breakfast??
 
 [PDF](pdfs/kronprinsessen/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
+
+---
+
+### 2012-12-28T14:16:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein; H.K.H. Kronprinsessen
+
+Subject: RE: Re:
+
+Please let me see what ca= I do . <=p> Mette — would break=ast work for you? Can you leave later in a day. <=p> Please send me dates when=you are arrive/leave! <=p> Would LOVE to see you bot=! <=p> B <=p> From: Jeffrey =pstein Imailto:jeevacation@gmailcoml Sent: Friday, December 28, 2012 4:51 PM To: H.K.H. Kronprinsessen Cc: Boris Nikolic Subject: Re: Breakfast??
+
+[PDF](pdfs/mette/EFTA02350520.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02350520.pdf)
 
 ---
 
@@ -4354,6 +6426,62 @@ Please let me see what can I do . Mette — would breakfast work for you? Can yo
 
 ---
 
+### 2012-12-28T14:15:35+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>, "H.K.H. Kronprinsessen
+
+Subject: RE: Re:
+
+Please let me see what can I do . Mette — would breakfast work for you? Can you leave later in a day. Please send me dates when you are arrive/leave I Would LOVE to see you both! B From: Jeffrey Epstein [mailtoleevacation@gmail.com] Sent: Friday, December 28, 2012 4:51 PM To: H.K.H. Kronprinsessen Cc: Boris Nikolic Subject: Re: Breakfast??
+
+[PDF](pdfs/mette/EFTA00642433-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642433-1.pdf)
+
+---
+
+### 2012-12-28T14:15:35+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein[jeeyacation©gmail.com]; H.K.H. Kronprinsessen
+
+Subject: RE: Re:
+
+Please let me see what can I do . Mette — would breakfast work for you? Can you leave later in a day. Please send me dates when you are arrive/leave! Would LOVE to see you both! B From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Friday, December 28, 2012 4:51 PM To: H.K.H. Kronprinsessen Cc: Boris Nikolic Subject: Re: Breakfast??
+
+[PDF](pdfs/mette/EFTA01912795-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795-1.pdf)
+
+---
+
+### 2012-12-28T14:15:35+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein[jeeyacation©gmail.com]; H.K.H. Kronprinsessen
+
+Subject: RE: Re:
+
+Please let me see what can I do . Mette — would breakfast work for you? Can you leave later in a day. Please send me dates when you are arrive/leave! Would LOVE to see you both! B From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Friday, December 28, 2012 4:51 PM To: H.K.H. Kronprinsessen Cc: Boris Nikolic Subject: Re: Breakfast??
+
+[PDF](pdfs/mette/EFTA01912795.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01912795.pdf)
+
+---
+
+### 2012-12-28T14:15:35+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>, "H.K.H. Kronprinsessen
+
+Subject: RE: Re:
+
+Please let me see what can I do . Mette — would breakfast work for you? Can you leave later in a day. Please send me dates when you are arrive/leave I Would LOVE to see you both! B From: Jeffrey Epstein [mailtoleevacation@gmail.com] Sent: Friday, December 28, 2012 4:51 PM To: H.K.H. Kronprinsessen Cc: Boris Nikolic Subject: Re: Breakfast??
+
+[PDF](pdfs/mette/EFTA00642433.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00642433.pdf)
+
+---
+
 ### 2012-12-28T09:33:37+00:00
 
 **From:** H.K.H. Kronprinsessen
@@ -4368,6 +6496,20 @@ I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
 
 ---
 
+### 2012-12-28T09:33:37+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Boris Nikolic
+
+Subject: Re: RE: Re:
+
+I arrive 6 th 7 pm and leave on the 11 th 6 pm from Miami to Paris ..
+
+[PDF](pdfs/mette/EFTA00692390.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692390.pdf)
+
+---
+
 ### 2012-12-28T09:31:16+00:00
 
 **From:** H.K.H. Kronprinsessen
@@ -4379,6 +6521,20 @@ Subject: Re: RE: Re:
 Boris if you stand me up on this one I will have a hit man sent your way
 
 [PDF](pdfs/kronprinsessen/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
+
+---
+
+### 2012-12-28T09:31:16+00:00
+
+**From:** H.K.H. Kronprinsessen
+
+**To:** Boris Nikolic
+
+Subject: Re: RE: Re:
+
+Boris if you stand me up on this one I will have a hit man sent your way
+
+[PDF](pdfs/mette/EFTA00692374.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00692374.pdf)
 
 ---
 
@@ -4589,6 +6745,76 @@ Subject:
 will fly to st barth sat
 
 [PDF](pdfs/kronprinsessen/EFTA00950887.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00950887.pdf)
+
+---
+
+### 2012-12-25T01:59:00+00:00
+
+**From:** Brice < >
+
+**To:** Jeffrey Epstein
+
+Subject: Re:
+
+Cc: Lesley Groff; Iviet; M Thanks Martin Novak arriving 27th-still planned Brice M Gordon
+
+[PDF](pdfs/mette/EFTA02354550.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02354550.pdf)
+
+---
+
+### 2012-12-25T01:58:56+00:00
+
+**From:** Brice
+
+**To:** Jeffrey Epste"
+
+Subject: Re:
+
+Thanks Martin Novak arriving 27th-still planned Brice M Gordon
+
+[PDF](pdfs/mette/EFTA01910101.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01910101.pdf)
+
+---
+
+### 2012-12-25T01:58:56+00:00
+
+**From:** Brice
+
+**To:** Jeffrey Epstein <I
+
+Subject: Re:
+
+Thanks Martin Novak arriving 27th-still planned Brice M Gordon
+
+[PDF](pdfs/mette/EFTA00398748.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00398748.pdf)
+
+---
+
+### 2012-12-25T01:58:56+00:00
+
+**From:** Brice
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Re:
+
+Thanks Martin Novak arriving 27th-still planned Brice M Gordon
+
+[PDF](pdfs/mette/EFTA00646395.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00646395.pdf)
+
+---
+
+### 2012-12-24T23:24:00+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Lesley Groff; lvjet;
+
+Subject: 
+
+Cc: proposed schedule, rubenstein 26, gergen on 28th Isj st bar=h 29, musk 30 overnight , farkas on jan 2, princess mette 3 Isj =t barth 4 ,. Isj- pb 10, pb -ny demo inglisas plane ? 12, 17 s=ayton karyna test, 19 paris. *********** ***•*****•***** ****** ***** ***************** ***** T=e information contained in this communication is confidential, may be a=torney-client privileged, may constitute inside information, and is int=nded only for the use of the addressee. It is the property of Jeffrey Epstein Unau=horized use, disclosure or copying of this communication or any part th=reof is strictly prohibited and may be unlawful. If you have received t=is communication in error, please notify us immediately by return e-mail or=by e-mail to <mailto:jeevacation@gmail.com> , and destroy this communication and all copies t=ereof, including all attachments. copyright -all rights reserved --047d7b86e6ec571dc304d1a17d09-- conversation-id 241195 date-last-viewed 0 date-received 1356391429 flags 8590195713 remote-id 265724 1 EFTA_R1_01727620 EFTA02564009
+
+[PDF](pdfs/mette/EFTA02564009.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02564009.pdf)
 
 ---
 
@@ -4813,6 +7039,20 @@ Subject: Re:
 For how long dear??? Love did u get my phone message re palm beach Tried to call you
 
 [PDF](pdfs/kronprinsessen/EFTA00701075.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701075.pdf)
+
+---
+
+### 2012-12-11T16:23:00+00:00
+
+**From:** Lesley Groff <
+
+**To:** Epstein Jeffrey
+
+Subject: Mette
+
+Cc: Please call Mette tomorrow on her cell...she says she is not available =or the rest of the day.. (she said you have her number but I requested she please pass it along =o me..she gave me the below: =?xml version=.0" encoding=TF-8"?> <!DOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.O.dtd"> <plist version=.0"> <dict> <key>conversation-idgkey> <integer>239708</integer> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1355243009</integer> <key>flags</key> <integer>8623750145</integer> <key>gmail-label-ids</key> <array> <integer>2</integer> </array> <key>remote-id</key> <string>263265</string> </dict> </plist> 1 EFTA_R1_01727132 EFTA02563785
+
+[PDF](pdfs/mette/EFTA02563785.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02563785.pdf)
 
 ---
 
@@ -5180,6 +7420,118 @@ Hi Boris....thank you for this message...were you able to change your meeting ti
 
 ---
 
+### 2012-12-02T18:42:33+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jcevacation@gmail.com>
+
+Subject: RE: Fwd:
+
+Great — will call you in three. From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Sunday, December 02, 2012 10:32 AM To: Boris Nikolic Subject: Re: Fwd: parsi available in tthree hours
+
+[PDF](pdfs/mette/EFTA00948985.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948985.pdf)
+
+---
+
+### 2012-12-02T18:42:33+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinfleeyacation©gmail.com]
+
+Subject: RE: Fwd:
+
+Great—will call you in three. From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Sunday, December 02, 2012 10:32 AM To: Boris Nikolic Subject: Re: Fwd: parsi available in [three hours
+
+[PDF](pdfs/mette/EFTA01974050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974050.pdf)
+
+---
+
+### 2012-12-02T18:32:22+00:00
+
+**From:** Jeffrey Epstein <jeevacationggmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: Fwd:
+
+parsi available in tthree hours
+
+[PDF](pdfs/mette/EFTA00948975.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948975.pdf)
+
+---
+
+### 2012-12-02T17:40:37+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinljeevacation©gmail.com]
+
+Subject: RE: Fwd:
+
+They are going to Hollywood. There is a lot of fantasy there. It might be a fit. Where are you now? Paris? Talk soon B From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Sunday, December 02, 2012 5:34 AM To: Boris Nikolic Subject: Fwd: Forwarded message From: Date: Sunday, December 2, 2012 Subject: To: jecvacation@gmail.com They are likely to decline - and honestly after my interview with the woman who would be my boss I am not sure it would be wise to take the job. During the interview she told me she really wanted an internal candidate and that bringing in an outsider meant a huge waste of time for her..."uhhh " Anyway I have a really cool plan/idea. I think you will support it and reeally like it. Still EFTA_R1_00457780 EFTA01973501 involves the WB. Got another note from Bill who really wants me to be at the WB. Too much to type...want to talk soon? Also - a really really neat idea from Steve and the LA boys. VERY CLEVER, it surprised me. The analogous Hollywood version of Intellectual Ventures (Nathan's gig). How is Mette feeling? Does she really have dengue? Want to talk soon? Tomorrow night late we get to BKK. There till Thursday. -----Original Message----- From: Jeffrey Epstein < eevacation mail com> To:-, MD Sent: Fri, Nov 30, 2012 1:00 pm when will you get feedback on worlkd bank, if they decline what is plan
+
+[PDF](pdfs/mette/EFTA01973501.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01973501.pdf)
+
+---
+
+### 2012-12-02T15:49:50+00:00
+
+**From:** Jeffrey Epstein <'eevacation a mail.com>
+
+**To:** jeevacation@gmail.com
+
+Subject: Re:
+
+To: mwalkermd < Sent: Sun, Dec 2, 2012 2:45 am Subject: Re: I'm in Paris
+
+[PDF](pdfs/mette/EFTA00948947.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00948947.pdf)
+
+---
+
+### 2012-12-02T10:45:38+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** , MD
+
+Subject: Re:
+
+Sent: Fri. Nov 30, 2012 1:00 pm when will you get feedback on worlkd bank, if they decline what is plan
+
+[PDF](pdfs/mette/EFTA01975457.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975457.pdf)
+
+---
+
+### 2012-12-02T05:45:04+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** jeevacation@gmail.com[jeevacation@gmail.com]
+
+Subject: Re:
+
+To: Sent: Fri, Nov 30, 2012 1:00 pm when will you get feedback on worlkd bank, if they decline what is plan
+
+[PDF](pdfs/mette/EFTA01975217.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01975217.pdf)
+
+---
+
+### 2012-12-02T05:45:04+00:00
+
+**From:** Jeffre E stein <jeevacafion mail.com>
+
+**To:** jeevacation@gmail.com
+
+Subject: Re:
+
+To: MD < > Sent: Fri, Nov 30. 2012 1:00 pm when will you get feedback on worlkd bank, if they decline what is plan
+
+[PDF](pdfs/mette/EFTA00671610.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671610.pdf)
+
+---
+
 ### 2012-12-01T01:41:19+00:00
 
 **From:** H.K.H. Kronprinsessen" <
@@ -5205,6 +7557,48 @@ Subject: Re:
 And thank you for being so wise... A work of art... I will try to remember it as the most beautiful i ever saw The park was magical... Im happy you enjoyed it... See you in Paris my friend Mm
 
 [PDF](pdfs/kronprinsessen/EFTA01761770.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01761770.pdf)
+
+---
+
+### 2012-11-30T23:00:18+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+Did she keep you warm and safe ;) In Oslo or in Paris? All went well. Will tell you more B From: Jeffrey Epstein [mailto:jeevacation@gmail.comJ Sent: Friday, November 30, 2012 1:00 PM To: Boris Nikolic Subject: how did it go with bill yesterday„ mette and i just walked in a park zero degrees, and dark.
+
+[PDF](pdfs/mette/EFTA00701108.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00701108.pdf)
+
+---
+
+### 2012-11-30T23:00:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein
+
+Subject: RE:
+
+Did she keep you warm and=safe ;) <=p> In Oslo or in Paris?=/o:p> <=p> All went well. Will tell =ou more <=p> B From: Jeffrey =pstein Imailto:jeevacation@gmail.com] Sent: Friday, November 30, 2012 1:00 PM To: Boris Nikolic Subject: how did it go with bi=l yesterday„ mette and i just walked in a park zero degrees, and da=k, ******** **** ********** *** ********* *** ***** ******* ***** *****
+
+[PDF](pdfs/mette/EFTA01762233.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01762233.pdf)
+
+---
+
+### 2012-11-30T20:59:56+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Boris Nikolic
+
+Subject: 
+
+how did it go with bill yesterday„ mette and i just walked in a park zero degrees, and dark,
+
+[PDF](pdfs/mette/EFTA01976145.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976145.pdf)
 
 ---
 
@@ -5250,6 +7644,34 @@ My Osteo is late so closer to six thirty
 
 ---
 
+### 2012-11-30T13:00:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Boris Nikoli
+
+Subject: Re:
+
+To: Boris Nikolic Subject: how did it go with bill yesterday„ mette and i just walked in a park zero degrees, and dark,
+
+[PDF](pdfs/mette/EFTA01974337.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01974337.pdf)
+
+---
+
+### 2012-11-30T13:00:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacation©gmail.com[jeevacation©gmail.com]; Jeffrey Epsteinbeevacation©gmaif corn]
+
+Subject: RE:
+
+To: Boris Nikolic Subject: how did it go with bill yesterday„ mette and i just walked in a park zero degrees, and dark, ***********************************************************
+
+[PDF](pdfs/mette/EFTA02722801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02722801.pdf)
+
+---
+
 ### 2012-11-30T11:10:00+00:00
 
 **From:** H.K.H. Kronprinsessen <
@@ -5278,6 +7700,20 @@ Call me!!!
 
 ---
 
+### 2012-11-29T20:19:37+00:00
+
+**From:** Lesley Groff
+
+**To:** • v i n mil. m ' v ti n m if m • Epstein fir ' i mail.com]
+
+Subject: Priv & Conf Nov. 29-30
+
+TONIGHT 4:15 Jojo to pick up. 5:00 JE and. to depart for JFK 7:10as Depart for Paris via Air France 11007f rom JFK (Record Loc# CYUMEX)(Record Loc For= ALNNJV) Plane to depart 7:40pm due to delay Fri. Nov. 30-PARIS to OSLO -Reminder: Mette 8:25am Arrive CDG (Plane to arrive 8:55am due to delay) ??? De rt Le Botairget, Manager mr Corrado mob 4' And office Plane falcon 900-EX-easy . 12:45 Arrive Oslo Hotel Continental (Confirm Rec Stortingsgaten 24-26 Oslo, NO Phone EFTA_R1_00512544 EFTA02011075 Fan has been requestedf or Junior Suite. Requested rooms be near by each other. Terje cell: PEOPLE TO SEE IN PARIS Rassek Rivkin Lang Daniel Siad's Herme's people: Francois Manalt (Project Manager), Francois Dore (General Manager), Pierre Francois Le Poutre (Marketing & Sales Manager) Francois Manalt EFTA_R1_00512545 EFTA02011076
+
+[PDF](pdfs/mette/EFTA02011075.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02011075.pdf)
+
+---
+
 ### 2012-11-29T18:52:50+00:00
 
 **From:** Jeffrey Epstein <jeevacation@gmail.com>
@@ -5303,6 +7739,34 @@ Subject:
 I should be at the continental tomorow night. you?
 
 [PDF](pdfs/kronprinsessen/EFTA01976449.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01976449.pdf)
+
+---
+
+### 2012-11-26T17:05:31+00:00
+
+**From:** Lesley Groff
+
+**To:** Epstein Jeffrey <ieevacationRcimail com>
+
+Subject: Fwd: Priv & Cont: Nov. 26-30
+
+Cc: Barnett , Lynn Fontanilla Lynn and ojo TONIGHT: 4:30pm Depart Chicagof or NY 6:45pm Arrive Teterboro, Atlantic Aviation Tues. Nov. 27-NY-Paris I I Appt w/Mcira (6:10pm to arrive CDG, Paris (RecordL oc# ~cell. aldson to pick up from aitport.) 7:10pm JE andEto depart via Air France #7f rom JFK (Record Loct Wed. Nov. 28-Paris -Reminder: Yoni & Nili to be in NY for the Saban Forum (Barak as well?) -Wednesday Night; Jack, Lang -Reminder Ian and Simon Nurray in Paris Wed. -Reminder: Doris EFTA_R1_00820822 EFTA02154707 8:25am Arrive CDG Thurs. Nov. 29-PARIS TO OSLO -Reminder: Terje Fri. Nov. 30-OSLO -Reminder: Mette PEOPLE TO SEE IN PARIS Rassek Rivkin Lang Lin Pin Daniel Siad's Herme's people: Francois Manalt (Project Manager), Francois Dore (General Manager), Pierre Francois Le Poutre (Marketing & Sales Manager) Francois Manalt EFTA_R1_00820823 EFTA02154708
+
+[PDF](pdfs/mette/EFTA02154707.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02154707.pdf)
+
+---
+
+### 2012-11-25T19:25:14+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Lesley Groff <1
+
+Subject: 
+
+wed night,i•c tang. . thurs, oslo terje, fri mette, sat stockho, bbb, ? sun paris„ fancelli, hermes,
+
+[PDF](pdfs/mette/EFTA00400841.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00400841.pdf)
 
 ---
 
@@ -6664,6 +9128,34 @@ weather was too bad, i returned to ny.. how was your wedding.
 
 ---
 
+### 2012-10-17T21:24:09+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacation@gmail.com[jeevacation@gmail.com]; Jeffrey Epsteinueevacation@gmail.com]
+
+Subject: RE: where are you?
+
+You can make a day trip. Cover yourself with fur and girls;) It helps B From: Jeffrey Epstein [mailtajeeyacation@gmail.com] Sent: Wednesday, October 17, 2012 2:23 PM To: Boris Nikolic Subject: Re: where are you? oslo
+
+[PDF](pdfs/mette/EFTA02022050.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02022050.pdf)
+
+---
+
+### 2012-10-17T21:22:52+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: where are you?
+
+oslo
+
+[PDF](pdfs/mette/EFTA00946054.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00946054.pdf)
+
+---
+
 ### 2012-10-16T08:46:46+00:00
 
 **From:** Jeffrey Epstein <jeevacation®gmail.com>
@@ -6916,6 +9408,34 @@ Come save us. Im dying of boredom
 
 ---
 
+### 2012-09-22T23:57:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein (jeevacation@gmail.com)
+
+Subject: tonight
+
+Nick Pritzkner is also coming to Kimbal bday.</=:p> Mette is in her hotel room — can't chose=which dress. B EFTA_R1_01721836 EFTA02560728
+
+[PDF](pdfs/mette/EFTA02560728.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02560728.pdf)
+
+---
+
+### 2012-09-22T23:56:30+00:00
+
+**From:** Boris Nikolic •t: Ina>
+
+**To:** Jeffrey Epstein (jeevacation@gmail.com)" <jeevacation@gmail.com>
+
+Subject: tonight
+
+Nick Pritzkner is also coming to Kimbal bday. Mette is in her hotel room — can't chose which dress. EFTA00943797
+
+[PDF](pdfs/mette/EFTA00943797.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943797.pdf)
+
+---
+
 ### 2012-09-22T23:02:52+00:00
 
 **From:** H.K.H. Kronprinsessen
@@ -6972,6 +9492,34 @@ Just in case that we all do not arrive at the same time: The address is: Kimbal'
 
 ---
 
+### 2012-09-22T20:50:00+00:00
+
+**From:** Story <jeevacation@gmail.com >
+
+**To:** Jeffrey Epstein
+
+Subject: Alert - mette, thailand,
+
+September 23, 2012 12:00 AM : mette, thailand, <?xml version="1.0" encoding="UTF-8"?> <!DOCTYPE plist PUBLIC "- //Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version="1.0"> <dict> <key>conversation-id</key> <integer>232015</integer> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1349131596</integer> <key>flags</key> <integer>8623750145</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>7</integer> <integer>2</integer> </array> <key>remote-id</key> <string>249255</string> </dict> </plist> 1 EFTA_R1_01720945 EFTA02560114
+
+[PDF](pdfs/mette/EFTA02560114.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02560114.pdf)
+
+---
+
+### 2012-09-22T20:44:27+00:00
+
+**From:** Google Calendar
+
+**To:** jeevacation@gmail.com[jeevacation@gmail.com]; Jeffrey Epsteinueeyacation@gmail.corn]
+
+Subject: Reminder: mette, thailand, @ Sun Sep 23, 2012 (jeevacation©gmail.com)
+
+more details * mette, thailand, When Sun Sep 23, 2012 Calendar jeevacation@gmail.com Who Jeffrey Epstein - organizer Invitation from Coople Calendar You are receiving this email at the account jeevacation@gmail.com because you are subscribed for reminders on calendar jeevacation©gmail.com. To stop receiving these notifications, please log in to httpsliwww.google.comfcalendari and change your notification settings for this calendar. EFTA_R1_00483308 EFTA01990627
+
+[PDF](pdfs/mette/EFTA01990627.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01990627.pdf)
+
+---
+
 ### 2012-09-22T18:47:00+00:00
 
 **From:** Boris Nikolic
@@ -7025,6 +9573,1000 @@ Subject: RE: ONLY 23 MINUTES AGO?
 To: Boris Nikolic Subject: ONLY 23 MINUTES AGO? 7:02 PM (23 minutes ago) H.K.H. Kronprinscsscn to me I'm surfing Very mellow
 
 [PDF](pdfs/kronprinsessen/EFTA02005562.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02005562.pdf)
+
+---
+
+### 2012-09-22T01:18:25+00:00
+
+**From:** Boris Nikolic <Boris.Nikolic@bgc3.com>
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE: Re:
+
+Whom are you kidding??? You are salivating over her. Nevertheless, she is great. More I know her more I like her. And it was very good to start with B From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Friday, September 21, 2012 6:17 PM To: Boris Nikolic Subject: Re: Re: i would do that before mette
+
+[PDF](pdfs/mette/EFTA00943683.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943683.pdf)
+
+---
+
+### 2012-09-22T01:18:25+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacation@gmail.com[jeevacation@gmail.com]; Jeffrey Epsteinueevacation@gmail.com]
+
+Subject: RE: Re:
+
+Whom are you kidding??? You are salivating over her. Nevertheless, she is great. More I know her more I like her. And it was very good to start with B From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Friday, September 21, 2012 6:17 PM To: Boris Nikolic Subject: Re: Re: i would do that before mette
+
+[PDF](pdfs/mette/EFTA02010191.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02010191.pdf)
+
+---
+
+### 2012-09-22T01:17:00+00:00
+
+**From:** Jeffrey Epstein <jeeyacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: Re:
+
+i would do that before mette
+
+[PDF](pdfs/mette/EFTA00943678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943678.pdf)
+
+---
+
+### 2012-09-21T20:26:26+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: Musks
+
+nick pritsker is coming at 1.. elon can join
+
+[PDF](pdfs/mette/EFTA00943626.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943626.pdf)
+
+---
+
+### 2012-09-21T18:17:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinueeyacation@gmail.com]
+
+Subject: RE: Re:
+
+To: Boris Nikolic Subject: Re: Re: i would do that before incue
+
+[PDF](pdfs/mette/EFTA01888905.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888905.pdf)
+
+---
+
+### 2012-09-21T18:15:00+00:00
+
+**From:** Jeffrey Epstein [mailto:leacationAomail,COM1
+
+**To:** Boris Nikolic
+
+Subject: Re: Re:
+
+To: Boris Nikolic would HAVE TO BE more fun that what i expect
+
+[PDF](pdfs/mette/EFTA01888774.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01888774.pdf)
+
+---
+
+### 2012-09-21T14:54:00+00:00
+
+**From:** Lesley Groff <lesleyjee@gmail.com>
+
+**To:** Epstein Jeffrey
+
+Subject: Janusz/Ms. Mette Book
+
+Janusz is back from dropping Karyna off at school.. The book is being =rapped and he will then deliver the book to Ms. Mette at the Chambers =otel, Rm 63=?xml version=.0" encoding=TF-8"?> <!DOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version=.0"> <dict> <key>conversation-idgkey> <integer>231603</integer> <key>date-last-viewed</key> <integer>O</integer> <key>date-received</key> <integer>1348239217</integer> <key>flags</key> <integer>8590195713</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>247116</string> </dict> </plist> 1 EFTA_R1_01722449 EFTA02561117
+
+[PDF](pdfs/mette/EFTA02561117.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02561117.pdf)
+
+---
+
+### 2012-09-21T13:58:35+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacation@gmail.com[jeevacation@gmail.com]; Jeffrey Epsteinueeyacation@gmail.com]
+
+Subject: RE:
+
+So great seeing you last night. I will continue sleeping as we came back late but your info Chambers hotel, 15 west 56th street, I think that the room is 63 but double check. Not sure if she is under her name. Kimbal txted me last at 7am so he is for sure not up. Will call him later in day. Going to sleep B Sent from my Windows Phone From: Jeffrey Epstein Sent: 9/21/2012 9:47 To: Boris Nikolic Subject: can you send mette , contact. , could we try to have clon and , kimball over to the house
+
+[PDF](pdfs/mette/EFTA02002729.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02002729.pdf)
+
+---
+
+### 2012-09-21T13:58:35+00:00
+
+**From:** Boris Nikolic <Boris.Nikolic@bgc3.com>
+
+**To:** Jeffrey Epstein
+
+Subject: RE:
+
+So great seeing you last night. I will continue sleeping as we came back late but your info Chambers hotel, 15 west 56th street, I think that the room is 63 but double check. Not sure if she is under her name. Kimbal txted me last at 7am so he is for sure not up. Will call him later in day. Going to sleep B Sent from my Windows Phone From: Jeffrey Epstein Sent: 9/21/2012 9:47 To: Boris Nikolic Subject: can you send mette , contact. , could we try to have elon and , kimball over to the house
+
+[PDF](pdfs/mette/EFTA00674939.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00674939.pdf)
+
+---
+
+### 2012-09-21T13:58:35+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinfleevacation©gmail.com]
+
+Subject: RE:
+
+So great seeing you last night. I will continue sleeping as we came back late but your info Chambers hotel, 15 west 56th street, I think that the room is 63 but double check. Not sure if she is under her name. Kimbal txted me last at 7am so he is for sure not up. Will call him later in day. Going to sleep B Sent from my Windows Phone From: Jeffrey Epstein Sent: 9/21/2012 9:47 To: Boris Nikolic Subject: can you send mette , contact. , could we try to have clon and , kimball over to the house
+
+[PDF](pdfs/mette/EFTA01886432.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886432.pdf)
+
+---
+
+### 2012-09-21T13:47:08+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+can you send mette , contact. , could we try to have elon and , kimball over to the house
+
+[PDF](pdfs/mette/EFTA00943567.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943567.pdf)
+
+---
+
+### 2012-09-21T10:58:48+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+i promised to send mette some books as she asked but she wanted them sent to her hotel which hotel? that was fun„ have meetings for the past hour. call when you wake
+
+[PDF](pdfs/mette/EFTA00944188.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00944188.pdf)
+
+---
+
+### 2012-09-20T10:31:09+00:00
+
+**From:** Jeffrey
+
+**To:** Boris Nikolic
+
+Subject: Re: Thursday night
+
+Landed ny Sorry for all the typos .Scut from my iPhonc
+
+[PDF](pdfs/mette/EFTA01887071.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01887071.pdf)
+
+---
+
+### 2012-09-20T04:39:09+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacationQgmail.com[jeevacation@gmail.com]; Jeffres[jeevacation@gmail.com]
+
+Subject: RE: Thursday night
+
+Was running late. Almost missed my flight. Just tried calling you but no answer. I need to switch off my phone now. I am in NYC tmr early morning. You??? So much looking forward to hanging out with you. Boris Sent from my Windows Phone From: Jeffrey Sent: 9/19/2012 20:40 To: Boris Nikolic Subject: Re: Thursday night Try cell Sorry for all the typos .Scnt from my iPhone
+
+[PDF](pdfs/mette/EFTA02007083.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02007083.pdf)
+
+---
+
+### 2012-09-20T02:55:42+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacationtagmail.com[jeeyacation@gmail.com]; Jeffres[jeevacation@gmail.com]
+
+Subject: RE: Thursday night
+
+GREAT progress here — very happy to report (re fund!). Rushing to pack and catch a red eye. Talk to you (and hopefully see you tmrl) I can call you in 1.5h
+
+[PDF](pdfs/mette/EFTA02001656.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02001656.pdf)
+
+---
+
+### 2012-09-19T11:55:41+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: Thursday night
+
+what time is your GALA „ should we organze a sat lunch , ?
+
+[PDF](pdfs/mette/EFTA00943063.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00943063.pdf)
+
+---
+
+### 2012-09-19T11:45:00+00:00
+
+**From:** Jeffrey
+
+**To:** Boris Nikolic
+
+Subject: Re: Thursday night
+
+To: Boris Nikolic Elon? Or anyone you find amusing Sorry for all the typos .Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA01886629.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01886629.pdf)
+
+---
+
+### 2012-09-19T04:56:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacationftmail.com[jeevacation@gmail.com]; Jeffrey Epsteinbeevacation©gmail.com]
+
+Subject: RE: Thursday night
+
+To: Boris Nikolic Subject: Re: Thursday night what time is your GALA „ should we organzc a sat lunch , ?
+
+[PDF](pdfs/mette/EFTA02025773.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02025773.pdf)
+
+---
+
+### 2012-09-19T04:56:00+00:00
+
+**From:** Jeffrey Epstein (mailto:jeevacation@gmail.com]
+
+**To:** Boris Nike
+
+Subject: Re: Thursday night
+
+To: Boris Nikolic what time is your GALA „ should we organze a sat lunch , ?
+
+[PDF](pdfs/mette/EFTA01884739.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01884739.pdf)
+
+---
+
+### 2012-06-30T20:34:30+00:00
+
+**From:** Jeffrey <jeevacation
+
+**To:** 'eevacation mail.com[jeevacation@gmail.com]
+
+Subject: Re: Sept 25
+
+To: Sen : un Subject: Re: Sept 25 Ok Sorry for all the typos .Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA01880062.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880062.pdf)
+
+---
+
+### 2012-06-10T17:12:19+00:00
+
+**From:** Boris Nikolic < ■
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>,
+
+Subject: RE:
+
+Who is really behind this - Bill or Mette???? ;) From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Sunday, June 10 2012 8:36 AM To: Boris Nikolic; MD Subject: http://www.geekwire.com/2012/raunchy-windows
+
+[PDF](pdfs/mette/EFTA00702028.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00702028.pdf)
+
+---
+
+### 2012-06-10T17:12:00+00:00
+
+**From:** Boris Nikolic <Boris.Nikolic@bgc3.com>
+
+**To:** Jeffrey Epstein;
+
+Subject: RE:
+
+Who is re=IIy behind this — Bill or Mette???? ;) =span style=lont-size:11.0pt;font-family:"Calibri","sans-serif";color:n1D5 From: Jeffrey Epstein (mailto:jeevacatio=@gmail.comj Sent: Sunday, June 10, 2012 8:36 AM To: B=ris Nikolic; Subject: <= class=MsoNormal> &nb=p; http://www.geekwire.com/2012/raunchy-windows
+
+[PDF](pdfs/mette/EFTA02394082.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02394082.pdf)
+
+---
+
+### 2012-06-10T08:36:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinijeevacationggmail.com]
+
+Subject: RE:
+
+To: Boris Nikolic; Subject: w.gpek ire.com/201 2/raunchy-windows ***********************************************************
+
+[PDF](pdfs/mette/EFTA01879801.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01879801.pdf)
+
+---
+
+### 2012-06-07T02:46:29+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeeyacation@gmail.com>
+
+Subject: RE: You
+
+I was re-reading my past email to you and noticed that I made a mistake — forgot NOT I meant She does NOT need surgery! Just a small biopsy Yes —we are
+
+[PDF](pdfs/mette/EFTA00671865.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671865.pdf)
+
+---
+
+### 2012-06-06T23:06:09+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein
+
+Subject: RE: You
+
+It is not silly. It is crazy! Sent from my Windows Phone From: Jeffrey Epstein Sent: Wednesday, June 06, 2012 16:03 To: Boris Nikolic Subject: Re: You yes a samll biopsy .. not a double mastccomy, its silly
+
+[PDF](pdfs/mette/EFTA01880080.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880080.pdf)
+
+---
+
+### 2012-06-06T23:06:09+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacation@gmail.com[jeevacation@gmail.com]; Jeffrey Epsteinueevacation@gmail.com]
+
+Subject: RE: You
+
+It is not silly. It is crazy! Sent from my Windows Phone From: Jeffrey Epstein Sent: Wednesday, June 06, 2012 16:03 To: Boris Nikolic Subject: Re: You yes a samll biopsy .. not a double mastccomy, its silly
+
+[PDF](pdfs/mette/EFTA01984966.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01984966.pdf)
+
+---
+
+### 2012-06-06T23:06:09+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE: You
+
+It is not silly. It is crazyl Sent from my Windows Phone From: Jeffrey Epstein Sent: Wednesday, June 06, 2012 16:03 To: Boris Nikolic Subject: Re: You yes a samll biopsy .. not a double mastecomy, its silly
+
+[PDF](pdfs/mette/EFTA00936516.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00936516.pdf)
+
+---
+
+### 2012-06-06T23:03:03+00:00
+
+**From:** Jeffrey Epst
+
+**To:** Boris Nikolic
+
+Subject: Re: You
+
+yes a samll biopsy .. not a double mastccomy, its silly
+
+[PDF](pdfs/mette/EFTA01880019-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880019-1.pdf)
+
+---
+
+### 2012-06-06T23:03:03+00:00
+
+**From:** Jeffrey Epst
+
+**To:** Boris Nikolic
+
+Subject: Re: You
+
+yes a samll biopsy .. not a double mastccomy, its silly
+
+[PDF](pdfs/mette/EFTA01880019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01880019.pdf)
+
+---
+
+### 2012-06-06T23:03:03+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: You
+
+yes a samll biopsy .. not a double mastecomy, its silly
+
+[PDF](pdfs/mette/EFTA00936513.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00936513.pdf)
+
+---
+
+### 2012-06-06T22:57:27+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacationtegmail.com[jeevacation@gmail.com]; Jeffrey Epsteinueevacation@gmail.com]
+
+Subject: RE: You
+
+I think that even if she has a small lump it is a benign. She does need surgery. Strangely it turns out that she told so many people re her surgery
+
+[PDF](pdfs/mette/EFTA02021851.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02021851.pdf)
+
+---
+
+### 2012-05-14T13:49:30+00:00
+
+**From:** Lesley Groff
+
+**To:** Lesley Groff
+
+Subject: Alarm - remind JE tonight about mette, boris
+
+May 4, 2012 8:30 AM : remind JE tonight about mette, boris EFTA_R1_00850115 EFTA02169423
+
+[PDF](pdfs/mette/EFTA02169423.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02169423.pdf)
+
+---
+
+### 2012-05-14T13:49:27+00:00
+
+**From:** Lesley Groff
+
+**To:** Lesley Groff Lesley
+
+Subject: Alarm - remind JE about mette, boris
+
+May 4, 2012 4:00 PM : remind JE about mette, boris EFTA_R1_00850170 EFTA02169460
+
+[PDF](pdfs/mette/EFTA02169460.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02169460.pdf)
+
+---
+
+### 2012-05-10T12:38:06+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey epstein <jeevacationggrnail.com>
+
+Subject: Hi
+
+Just arrived to London. Mette and I had a lot of fun and talked about you. You were missed! Did you talk to bill. What did you decide? Pls let me know asap. I need to call Kevin later in day. B Sent from my Windows Phone EFTA00935218
+
+[PDF](pdfs/mette/EFTA00935218.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00935218.pdf)
+
+---
+
+### 2012-05-10T12:38:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeffrey epstein
+
+Subject: Hi
+
+Just ar=ived to London. Mette and I had a lot of fun and talked about you. You wer= missed! Did you talk to bill. What did you decide? Pls let me know=asap. I need to call Kevin later in day. B Sent from my Windows Phone EFTA_R1_00080628 EFTA01769860
+
+[PDF](pdfs/mette/EFTA01769860.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01769860.pdf)
+
+---
+
+### 2012-05-07T23:27:15+00:00
+
+**From:** Boris Nikolic •t: Ina>
+
+**To:** Jeffrey Epstein (jeevacation@gmail.com)" <jeevacation@gmail.com>
+
+Subject: FW: Zeitplan amfar Gala 19.5.2012
+
+Eva is my friend there who will host us. She is very close friend with Mette as well. Eva and I are still trying to get Mette to join at the last moment. She and her family own 80% or so of Austrian media (Heute etc). She is describing program below. The plan would be that we arrive to Vienna on Thursday 17th mid day. On Thursday there is a big Premiere of Mozart La Clemenza de Tito and we go to that. ON Friday Eva is organizing a dinner/reception with her friends. We can schedule some other meetings/visits during day. On Saturday the night starts at 5pm and goes through early next morning. I leave first flight Sunday morning for San Francisco to meet Bill. If you are staying in Vienna and have time (and like Eva) you should go to her brunch. How this seems to you??? B Original Message From: Eva Dichand [mailto: Sent: Monday, May 07, 2012 5:51 AM To: 'Cavan Mahony; Boris Nikolic; Subject: WG: Zeitplan amfar Gala 19.5.2012 Hallo everybody! Attached (sorry in Germain) the Programm fort he lifeball on the 19th. Actually there will be a Galadinner with our prime minister and Bill Clinton and all kinds of stars in the Hofburg (former Imerial estate - very impressive to see from inside)) It is only 250 people,. A seated dinner and more upscale than the rest oft he evening. It start's at 5pm with a Champagne cocktail and from there we go directly to the opening oft he ball where we'll have a really cool Box first row!! Dresscode: actually the lifeball is really crazy and 'half naked' We always do a intermediare because otherwise you feel like an idiot at the Amfar Gala dinner before. People now don't wear Tuxedos anymore. Christoph wear's normal black trouseres with a white shirt and a dar sakko because he doesn't want to be in any crazy stuff on all the pies. Half oft he people oft he gala dinenr also waer some 'little' crazy stuff like pink velvet sakkos (and a mask for later) or so. girls: Crazy as you like. There are a lot of atrists that are really dressed up. I will wear a quiet see-through short dress with high high heels+ a chanel Tatoo and will take a face mask fort he ball later. EFTA00934398 So I hope this helped at least a little bit. For pies got to: lifeball.org Friday night: We would like to invite you all for dinner and will organize a nice place with a cool bar. Aress follows. Pls let me know who wants to join!! Sunday: I'm very sure we'll be dead :- BUT we would like to invite ou to our house/garden/pool (swimmwear) for brunch starting at 11 15 min with Taxi. If you fly late we can walk from our house to one oft he famous Austrian heurigen ...and get some more alcholic to drink :-) :-) On Thursday there is a big Premiere of Mozart La Clemenza de Tito. Very hard to get tickets but for 2 of you I could still organize (hopefully9 if some of you already arrive on Thursday. Big kiss to everbody...I promise you...not often you will have seen something that crazy :-) Eva Dr. Eva Dichand Herausgeberin Heute - Kein Morgen ohne Heute AHVV Verla s GmbH Urspriingliche Nachricht Von: Manuela Wieland [mailto Gesendet: Monts , 07. Mai 2012 13:45 An: Betreff: Zeitplan amfar Gala 19.5.2012 Liebe Frau Dichand, anbei der Zeitablauf von der AMFAR Gala 2012 am 19.5.2012. LG MW EFTA00934399
+
+[PDF](pdfs/mette/EFTA00934398.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934398.pdf)
+
+---
+
+### 2012-05-05T01:04:00+00:00
+
+**From:** Lesley Groff
+
+**To:** Epstein Jeffrey
+
+Subject: Reminder
+
+Reminder mette and Boris Sent from my iPhone <?xml version="1.0" encoding="UTF-8"?> <!DOCTYPE plist PUBLIC "4/ApplefiDTD PLIST 1.0//EN" "http://www.apple.com/DTDs/PropertyList-1.0.dtd"> <plist version="1.0"> <dict> <key>date-last-viewed</key> <real>0.0</real> <key>date-received</key> <real>1336191580</real> <key>flags</key> <integer>8590195713</integer> <key>original-mailbox</key> <string>imap:Meevacation@imap.gmail.com/%5BGmail%5D/All%20Mail</string> <key>remote-id</key> <string>221268</string> </dict> </plist> 1 EFTA_R1_01373865 EFTA02371307
+
+[PDF](pdfs/mette/EFTA02371307.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02371307.pdf)
+
+---
+
+### 2012-05-05T01:04:00+00:00
+
+**From:** Lesley Groff <
+
+**To:** Epstein Jeffrey
+
+Subject: Reminder
+
+Reminder mette and Boris Sent from my iPhone <?xml version="1.0" encoding="UTF-8"?> <!DOCTYPE plist PUBLIC "-//Apple//DTD PLIST 1.0//EN" "http://www.apple.com/DTDs/Propertylist-1.0.dtd"> <plist version=' 1.0"> <dict> <key>conversation-id</key> <integer>219026</integer> <key>date-last-viewed</key> <integer>0</integer> <key>date-received</key> <integer>1336191580</integer> <key>flags</key> <integer>8590195713</integer> <key>gmail-label-ids</key> <array> <integer>6</integer> <integer>2</integer> </array> <key>remote-id</key> <string>221268</string> </dict> </plist> 1 EFTA_R1_01712161 EFTA02554611
+
+[PDF](pdfs/mette/EFTA02554611.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02554611.pdf)
+
+---
+
+### 2012-05-05T01:03:39+00:00
+
+**From:** Lesley Groff <MIMIII >
+
+**To:** Epstein Jeffrey <jeevacation@gmail.com>
+
+Subject: Reminder
+
+Reminder mette and Boris Sent from my iPhone EFTA00413897
+
+[PDF](pdfs/mette/EFTA00413897.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00413897.pdf)
+
+---
+
+### 2012-05-05T01:03:39+00:00
+
+**From:** Lesley Groff <a>
+
+**To:** Epstein Jeffrey <jeevaeation4:gmail.com>
+
+Subject: Reminder
+
+Reminder mette and Boris Sent from my iPhone EFTA00671852
+
+[PDF](pdfs/mette/EFTA00671852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00671852.pdf)
+
+---
+
+### 2012-05-05T00:59:12+00:00
+
+**From:** Lesley Groff
+
+**To:** jeevacationQgmail.com[jeevacation@gmail.com]: Jeffrey Epsteinueevacation@gmail.com]
+
+Subject: reminder: mette and boris
+
+reminder: mette and boris EFTA_R1_00485160 EFTA01991981
+
+[PDF](pdfs/mette/EFTA01991981.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01991981.pdf)
+
+---
+
+### 2012-05-04T12:25:26+00:00
+
+**From:** Google Calendar
+
+**To:** Lesley Grof
+
+Subject: Reminder: remind JE tonight about mette, boris @ Fri May 4 8:30am - 9am
+
+more details » remind JE tonight about mette, boris When Fri May 4 8:30am — 9am Eastern Time Calendar Who Lesley Groff - organizer Invitation from Gooale Calendar You are receiving this email at the account lestey jee©gmail corn because you set a reminder for this event on the calendar lesley.tee@gmail.com. You can change your reminders for specific events in the event details page in httpsiiVarhygoogle.comicalendarl. EFTA_R1_00851890 EFTA02170434
+
+[PDF](pdfs/mette/EFTA02170434.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02170434.pdf)
+
+---
+
+### 2012-05-03T04:24:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinueevacation@gmailcom]
+
+Subject: 
+
+To: Boris Nikolic rest think you are working against your inetersts.. here bill has someone who works 20 hrs a day„ is willing to take on more, and doens't require more pay. you are traingin him to take you for granted and expecting him to appreciate you after the fact. . wishful thinking. I think your proposal should be as a fair split, he should get the 20% of the net. and allocate 30-40 million from larsen. . otherwise you can point out that even if you were to get a 100% return on the 10 million, over 4 years.. an unlikely result, you would end up with less than 1.5 ,million after tax after 4 years,,, not fair EFTA_R1_00297701 EFTA01883496
+
+[PDF](pdfs/mette/EFTA01883496.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01883496.pdf)
+
+---
+
+### 2012-05-02T20:33:03+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+Just called Sent from my Windows Phone From: Jeffrey Epstein Sent: Wednesday, May 02, 2012 13:14 To: Boris Nikolic Subject: should i have mette for tea
+
+[PDF](pdfs/mette/EFTA00709627.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00709627.pdf)
+
+---
+
+### 2012-05-02T20:13:58+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+should i have mette for tea
+
+[PDF](pdfs/mette/EFTA00934481.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934481.pdf)
+
+---
+
+### 2012-05-02T16:47:27+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+cell or
+
+[PDF](pdfs/mette/EFTA00934474.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934474.pdf)
+
+---
+
+### 2012-05-02T16:47:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein
+
+Subject: RE:
+
+Will call=you later in day. It has =een beyond buys. Barely slept during last few days. <= class=MsoNormal> I will not be in NYC as I did not get Met Gala ticket (it was too c=mplicated). Mette will be=by herself (with her best friend an Italian Vogue editor). I think s=e will be there Monday and Tuesday. I am mee=ing her in London on Thursday or Friday (more likely).</=> Will call you in few hours. Have a number updates for you Which number to call? B Fr=m: Jeffrey Epstein [mailto:jeevacation@gmail.comj Sent: Wedn=sday, May 02, 2012 6:53 AM To: Boris Nikolic Subject: =o:p> will mette be in ny with you=br clear=all>
+
+[PDF](pdfs/mette/EFTA01768308.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01768308.pdf)
+
+---
+
+### 2012-05-02T16:46:34+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+Will call you later in day. It has been beyond buys. Barely slept during last few days. I will not be in NYC as I did not get Met Gala ticket (it was too complicated). Mette will be by herself (with her best friend an Italian Vogue editor). I think she will be there Monday and Tuesday. I am meeting her in London on Thursday or Friday (more likely). Will call you in few hours. Have a number updates for you Which number to call? B From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Wednesday, May 02, 2012 6:53 AM To: Boris Nikolic Subject: will mette be in ny with you
+
+[PDF](pdfs/mette/EFTA00630260.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00630260.pdf)
+
+---
+
+### 2012-05-02T13:52:43+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+will mette be in ny with you
+
+[PDF](pdfs/mette/EFTA00934838.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00934838.pdf)
+
+---
+
+### 2012-05-02T13:14:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinueevacation@gmail.comj
+
+Subject: 
+
+To: Boris Nikolic should i have mette for tea ***********************************************************
+
+[PDF](pdfs/mette/EFTA01881730.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01881730.pdf)
+
+---
+
+### 2012-05-02T13:14:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacation©gmail.com[jeevacationellgmail.com]; Jeffrey Epstein[jeeyacation©gmail.corn]
+
+Subject: RE:
+
+To: Boris Nikolic Subject: should i have mette for tea ***********************************************************
+
+[PDF](pdfs/mette/EFTA01984788.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01984788.pdf)
+
+---
+
+### 2012-05-01T13:26:34+00:00
+
+**From:** Lesley Groff
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Re:
+
+I will remind you This Friday night, May 4th about Mette, Boris.
+
+[PDF](pdfs/mette/EFTA00656237.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656237.pdf)
+
+---
+
+### 2012-05-01T13:26:34+00:00
+
+**From:** Lesley Groff <1
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: Re:
+
+I will remind you This Friday night, May 4th about Mette, Boris.
+
+[PDF](pdfs/mette/EFTA00414407.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414407.pdf)
+
+---
+
+### 2012-05-01T13:18:29+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Lesley Groff
+
+Subject: 
+
+remind me on friday night re mette, boris
+
+[PDF](pdfs/mette/EFTA00414395.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00414395.pdf)
+
+---
+
+### 2012-04-30T21:52:58+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+no rush, i need to talk about sam, vienna, mette, melz.
+
+[PDF](pdfs/mette/EFTA00933688.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933688.pdf)
+
+---
+
+### 2012-04-30T09:47:00+00:00
+
+**From:** Jeffrey Epste
+
+**To:** Boris Nikolic[
+
+Subject: 
+
+To: can you speak?
+
+[PDF](pdfs/mette/EFTA01883738.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01883738.pdf)
+
+---
+
+### 2012-04-21T07:39:10+00:00
+
+**From:** Jeffrey <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: RE:
+
+I just thought she might know interesting girls/people Sony for all the typos .Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA00715585.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00715585.pdf)
+
+---
+
+### 2012-04-21T00:49:39+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+I already discussed that. Mette will meet us in Paris before Vienna. She does not like spending time in Oslo right now. She is in Paris right now. She is still thinking of going to Vienna — although it is not likely unless we push her. The following Sunday she is coming to visit me in Seattle. And she wants to go home to see kids before Seattle She will be also in NYC for a Met Ball Gala. B From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Friday, April 20, 2012 4:42 PM To: Boris Nikolic Subject: should we go to norway befoere vienna ? , can mette orgaine intersting dinner?
+
+[PDF](pdfs/mette/EFTA00660058.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00660058.pdf)
+
+---
+
+### 2012-04-20T23:42:16+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+should we go to nonvay befoere vienna ? , can mette orgaine intersting dinner?
+
+[PDF](pdfs/mette/EFTA00933230.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933230.pdf)
+
+---
+
+### 2012-04-20T16:42:00+00:00
+
+**From:** Jeffrey
+
+**To:** Boris Nikolic
+
+Subject: 
+
+To: Boris Nikolic should we go to norway befoere vienna ? , can mette orgaine intersting dinner?
+
+[PDF](pdfs/mette/EFTA01870852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01870852.pdf)
+
+---
+
+### 2012-04-20T16:42:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacationftmail.con[jeevacation@gmail.com]; Jeffrey Epsteinbeevacation©gmail.com]
+
+Subject: RE:
+
+To: Boris Nikolic Subject: should we go to norway befoere vienna ? , can mette orgaine intersting dinner? ***********************************************************
+
+[PDF](pdfs/mette/EFTA02024923.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02024923.pdf)
+
+---
+
+### 2012-04-17T11:42:35+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re: FW: A couple of pics
+
+ny, today isalnd tomororww
+
+[PDF](pdfs/mette/EFTA00933821.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00933821.pdf)
+
+---
+
+### 2012-01-28T19:08:15+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** pstein[jeevacation©gmail.com]
+
+Subject: RE:
+
+Sent: Friday, January 27, 2012 2:29 PM To: Subject: highlights?
+
+[PDF](pdfs/mette/EFTA01845388.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01845388.pdf)
+
+---
+
+### 2012-01-28T19:08:15+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** pstein[jeevacation©gmail.com]
+
+Subject: RE:
+
+Sent: Friday, January 27, 2012 2:29 PM To: Subject: highlights?
+
+[PDF](pdfs/mette/EFTA01845388-1.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01845388-1.pdf)
+
+---
+
+### 2012-01-28T19:08:15+00:00
+
+**From:** dente
+
+**To:** jeevacation@gmail.com[jeevacation@gmail.com]; Jeffrey Epsteinueevacation@gmail.com)
+
+Subject: RE:
+
+You should get a villa and do it next year Experience like no other, plenty of good and bad but quite collection of people My highlights (in no particular order) Hosting the global shapers from around the world (under 30) interactions with David Rubenstein Dinner with bill Chilling with mette and haakon Watching Boris be Boris I learned that I can bring a "spouse" with all access no questions asked. So it I get invited next year please be my "spouse". Not sure I will get invited back but maybe. Basically I learned that none of these "elite" know much more individually than I do, but their networks are force multipliers I enjoyed the philosophical discussions
+
+[PDF](pdfs/mette/EFTA01989089.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01989089.pdf)
+
+---
+
+### 2012-01-27T13:34:34+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+Too many. It is a zoo here. Super busy. Last night a small dinner with few good friends — Bill, David Rubenstein, Mette, Hakkon, Vivek (ex — Chief Information officer of USA), Consuelo, Andy, and Melanie. Fun! Whish that you were there. After that with Mette, Hakkon and Melanie we hit a town — until very late. I actually like Hakkon a LOT! Met Mike Jager. Melanie is doing great job at her first davos. I just wish that you were her. We would have so much fun!!! More to come need to run for a next meeting How you are doingm?? Miss you! B From: Jeffrey Epstein [mallto:jeeyacation@gmall.com] Sent: Friday, January 27, 2012 2:29 PM To: Boris Nikolic Subject: highlights?
+
+[PDF](pdfs/mette/EFTA00928360.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00928360.pdf)
+
+---
+
+### 2012-01-27T13:34:34+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeeyacation@igmail.com[jeeyacation@gmail.com]; Jeffrey Epsteinueeyacation@gmail.com]
+
+Subject: RE:
+
+Too many. It is a zoo here. Super busy. Last night a small dinner with few good friends - Bill, David Rubenstein, Mette, Hakkon, Vivek (ex - Chief Information officer of USA), Consuelo, Andy, and Melanie. Fun! whish that you were there. After that with Mette, Hakkon and Melanie we hit a town - until very late. I actually like Hakkon a LOT! Met Mike Jager. Melanie is doing great job at her first davos. I just wish that you were her. We would have so much fun!!! More to come need to run for a next meeting How you are doing11,11 Miss you! B From: Jeffrey Epstein (mailto:jeevacation@gmail.com] Sent: Friday, January 27, 2012 2:29 PM To: Boris Nikolic Subject: highlights? ** ***** * ****** ************************ ******** **** *********
+
+[PDF](pdfs/mette/EFTA02035061.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02035061.pdf)
+
+---
+
+### 2012-01-27T13:34:34+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epsteinueevacation©gmail.com]
+
+Subject: RE:
+
+Too many. It is a zoo here. Super busy. Last night a small dinner with few good friends — Bill, David Rubenstein, Mette, Hakkon, Vivek (ex — Chief Information officer of USA), Consuelo, Andy, and Fun! Whish that you were there. After that with Mette, Hakkon andne hit a town — until very late. I actually like Hakkon a LOT! Met Mike lager. s doing great job at her first davos. I just wish that you were her. We would have so much fun!!! More to come need to run for a next meeting How you are doingmn Miss you! B From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Friday, January 27, 2012 2:29 PM To: Boris Nikolic Subject: EFTA_R1_00237140 EFTA01846769 highlights? *************
+
+[PDF](pdfs/mette/EFTA01846769.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01846769.pdf)
+
+---
+
+### 2012-01-26T14:08:07+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein acevacation@Lunail.corn)" <jeevacation@gmail.coin>
+
+Subject: hi
+
+You are greatly missed here. Was calling you with Mette the other day. It is fun — BUT it is super intense — every day from 7am to 2am non-stop. Tonight I organized a very small dinner with Bill, david Rubenstein, Mette, Hakoon, Consuela, few other interesting YGL and Melanie. After that some hottest after party in Davos — going as Mette's date. On Saturday gong to London — and then all starts again. How are you? EFTA00687038
+
+[PDF](pdfs/mette/EFTA00687038.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00687038.pdf)
+
+---
+
+### 2012-01-26T14:08:00+00:00
+
+**From:** Boris Nikolic <
+
+**To:** Jeffrey Epstein (jeevacation@gmail.com)
+
+Subject: hi
+
+You are greatly =issed here. Was calling you with Mette the other day. It is fun —= BUT it is super intense — every day from lam to 2am non-stop.<=o:p> Ton=ght I organized a very small dinner with Bill, david Rubenstein, Mette, Ha=oon, Consuela, few other interesting YGL and Melanie. After that some hottest after party in Davos — going a= Mette's date. <=p> On Saturday gong to London — and then all sta=ts again. How are you? B 1 EFTA_R1_01395361 EFTA02380852
+
+[PDF](pdfs/mette/EFTA02380852.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02380852.pdf)
+
+---
+
+### 2012-01-23T22:54:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein (jeevacation@qmail.com)
+
+Subject: FW:
+
+SO SORRY =AN. You really clashed bad with Chris. They =re adamant about it. I tr=ed everything. Will tell you more. Going to sleep soon. Will call you tmr. Boris Went to a small dinner with Mette= and Hakkaan. Invited Melanie and your Andrew. We had fun (mor= me than Melanie and Andrew ;) <=pan style=lont-size:11.0pt;font-family:"Calibri","sans-serif";color:1$1FD1>Will tell you more. =o:p> B Fro=: Wendy Woska Sent: Monday, January 23, 2012 1:29 PM Th: Boris Nikolic Subject: RE: Hi=Boris — Unfortunat=ly TED has declined our transfer request because they do not feel Dr. Epst=in is a good fit for the conference. Would you be able to let Jeffrey and =ichard know? EFTA_R1_01302862 EFTA02339616 -ww-=/p> From: Boris Nikolic Sent: Thursday, Janu=ry 05, 2012 2:11 PM To: Wendy Woska Cc: Richard Kahn; =effrey Epstein (jeevacation@gmail.com) Subject: RE: <=span> Hi=Wendy, <=span> Can =ou please help Richard with a transfer of one of our tickets to Jeffrey Ep=tein to attend TED 2012? =hank you! B =/html>= 2 EFTA_R1_01302863 EFTA02339617
+
+[PDF](pdfs/mette/EFTA02339616.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02339616.pdf)
 
 ---
 
@@ -7406,6 +10948,34 @@ new york?
 
 ---
 
+### 2011-11-28T06:06:53+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeffrey epstein <jeevacation®gmail.com>
+
+Subject: RE: some interesting books/articles
+
+No problem. I am not that concerned YET. It was my mistake (sort of — as it needed to happened sooner than later) to do it at the time I am not sure that there is enough time — I knew that he is traveling and not reachable for Thanksgiving. Also that Monday is totally full. I am getting the first time possible. Let's hold judgment until the meeting. B From: Jeffrey epstein (malltoleevacatIon@gmail.com] Sent: Sunday, November 27, 2011 10:04 PM To: Boris Nikolic Subject: Re: some interesting books/articles No„ I think best I not stir . I wish bills response would have been quick To your questions Sorry for all the typos .Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA00672678.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00672678.pdf)
+
+---
+
+### 2011-11-27T21:50:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** jeevacation@gmail.comijeevacationellgmail.comj: Jeffrey epsteinueevacatiomagmail.comj
+
+Subject: RE: some interesting books/articles
+
+To: Boris Nikolic Subject: Re: some interesting books/articles I know kahnemsn well Sony for all the typos .Sent from my iPhone
+
+[PDF](pdfs/mette/EFTA01991647.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01991647.pdf)
+
+---
+
 ### 2011-11-16T12:08:49+00:00
 
 **From:** H.K.H. Kronprinsessen" <
@@ -7448,6 +11018,118 @@ ny?
 
 ---
 
+### 2011-11-15T08:46:40+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+you should schedule you trip to my island did you tell anyone about our mette conversation. Marco etc. ygl people? On Tue, Nov 15, 2011 at 7:28 AM, Boris Nikolic rote: > Whole day at mtgs...**** > Just done with DARPA mtg - since Sam,**** > ** * * •> What happened with Mette now?? She wants to carry your kid? ;)**** > * * * * •> *From:* Jeffrey Epstein [mailto:jeevacation@gmail.com] > *Sent:* Monday, November 14, 2011 12:46 PM > *To:' Boris Nikolic > *Subject:* **** > ** ** > mette is a mess
+
+[PDF](pdfs/mette/EFTA02027947.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02027947.pdf)
+
+---
+
+### 2011-11-15T08:46:40+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+you should schedule you trip to my island , did you tell anyone about our mette conversation. Marco etc. ygl people?
+
+[PDF](pdfs/mette/EFTA00923505.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00923505.pdf)
+
+---
+
+### 2011-11-15T06:28:53+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+Whole day at mtgs... Just done with DARPA mtg — since Sam, What happened with Mette now?? She wants to carry your kid? ;) From: Jeffrey Epstein [mailto:jeevacation@gmail.com] Sent: Monday, November 14, 2011 12:46 PM To: Boris Nikolic Subject: mette is a mess
+
+[PDF](pdfs/mette/EFTA00656705.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00656705.pdf)
+
+---
+
+### 2011-11-14T12:46:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** jemmeation@gmail.eom[jemmeationgpgmaiteom]; Jeffrey Epsteinbeevacation©gmail.com]
+
+Subject: RE:
+
+To: Boris Nikolic Subject: melte is a mess
+
+[PDF](pdfs/mette/EFTA02020770.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02020770.pdf)
+
+---
+
+### 2011-11-14T12:46:00+00:00
+
+**From:** Boris Nlkolic
+
+**To:** Jeffrey Epsteinijeevacationggmail.com]
+
+Subject: RE:
+
+To: Boris Nikolic Subject: melte is a mess
+
+[PDF](pdfs/mette/EFTA01850019.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01850019.pdf)
+
+---
+
+### 2011-11-14T12:46:00+00:00
+
+**From:** Jeffrey Epste
+
+**To:** Boris Nikolie
+
+Subject: 
+
+To: Boris Nikolic mette is a mess ************* ******* ******** *******************************
+
+[PDF](pdfs/mette/EFTA01850328.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01850328.pdf)
+
+---
+
+### 2011-11-08T19:38:08+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein <jeevacation@gmail.com>
+
+Subject: RE:
+
+Arrived this morning. Smell is already long gone. Wish you were here. Whether here in NYC today is so nice. Missed my breakfast with mette as I followed asleep.11I II Will send you more later in day Boris Sent from my Windows Phone From: Jeffrey Epstein Sent: Tuesday, November 08, 2011 5:04 To: Boris NIkolic Subject: hope you had fun, take a long shower, otherwise you will) smell like curry in ny. AT the dinner thurs, Eva Andersson Dubin.. my ex- and mother of my god daughter that bill met in my house. She was a former miss sweden. we were together for ten years. she wanted marriage , AGGHHH. she married glenn dubin. Untrustwaorthy prick. howver he allowed me to enjoy raising my goddaughter. Bill i believe will find her interesting. the rest of the crowd is BORING except for PAul who is from tennessee . and can trade but not think. likes to hear himself talk.
+
+[PDF](pdfs/mette/EFTA00708942.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00708942.pdf)
+
+---
+
+### 2011-11-08T05:04:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** jeevacationgDgmail.compeevacation@gmail.com]; Jeffrey Epsteinbeevacation©gmail.com]
+
+Subject: 
+
+To: Boris Nikolic hope you had fun, take a long shower, otherwise you will, smell like curry in ny. AT the dinner thurs, Eva Andersson Dubin.. my ex- and mother of my god daughter that bill met in my house. She was a former miss sweden. we were together for ten years. she wanted marriage , AGGHHH. she married glenn dubin. Untrustwaorthy prick. howver he allowed me to enjoy raising my goddaughter. Bill i believe will find her interesting. the rest of the crowd is BORING except for PAul who is from tennessee . and can trade but not think. likes to hear himself talk.
+
+[PDF](pdfs/mette/EFTA02014444.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+11/EFTA02014444.pdf)
+
+---
+
 ### 2011-11-07T11:21:47+00:00
 
 **From:** H.K.H. Kronprinsessen" < >
@@ -7473,6 +11155,34 @@ Subject:
 wherea reyou
 
 [PDF](pdfs/kronprinsessen/EFTA00923037.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00923037.pdf)
+
+---
+
+### 2011-11-03T05:51:41+00:00
+
+**From:** Boris Nikolic •t: Ina>
+
+**To:** Jeffrey Epstein (jeevacation@gmail.com)" <jeevacation@gmail.com>
+
+Subject: confirmed
+
+Some parts of story re Mette (except substance which still blows my mind). Presumably she is not well at all. I would hate that life — it is much worse than what we thought. EFTA00719946
+
+[PDF](pdfs/mette/EFTA00719946.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00719946.pdf)
+
+---
+
+### 2011-11-03T05:51:41+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein (jeevacation@gmail.com) <jeevacation@gmail.com>
+
+Subject: confirmed
+
+Some parts of story re Mette (except substance which still blows my mind). Presumably she is not well at all. I would hate that life — it is much worse than what we thought. B EFTA_R1_00030613 EFTA01740931
+
+[PDF](pdfs/mette/EFTA01740931.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01740931.pdf)
 
 ---
 
@@ -7515,6 +11225,20 @@ Subject:
 
 
 [PDF](pdfs/kronprinsessen/EFTA01849202.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01849202.pdf)
+
+---
+
+### 2011-10-26T12:33:40+00:00
+
+**From:** Jeffrey Epstein <jeevacation@gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: 
+
+great book suggestion.. lets talk when you can. . mette? dugan, wef, poole, sam.
+
+[PDF](pdfs/mette/EFTA00922922.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00922922.pdf)
 
 ---
 
@@ -7851,6 +11575,62 @@ Subject: Re:
 Ha ha god you work fast! I love it But then agai= im not overly focused on details. I'm more the emoti=nal picture kind of gal Try read with your gut not your int=llect Might get better Googl=d u after last email Agree didn't look too goo= : ) Thanks for the video &nb=p; Such a beautiful woman If one c=uld only hope to become like that at old age See u=later Mm
 
 [PDF](pdfs/kronprinsessen/EFTA01773663.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01773663.pdf)
+
+---
+
+### 2011-05-10T19:08:44+00:00
+
+**From:** Jeffrey Epstein <jeevacation®gmail.com>
+
+**To:** Boris Nikolic
+
+Subject: Re:
+
+no emails yesterday, call me 331 441 70210
+
+[PDF](pdfs/mette/EFTA00910457.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00910457.pdf)
+
+---
+
+### 2011-05-10T18:56:00+00:00
+
+**From:** Boris Nikolic
+
+**To:** Jeffrey Epstein
+
+Subject: RE:
+
+I sent yo= last night few emails re these points. Did you get it. 1)&nbs=; Mette R=1; would prefer that she meet you with me. She will be in NW first week i= June. 2) &=bsp; Island —= YES Sometime in July. 3) Inovative financing — I sent you an email yesterday. Bill wil= get focused on that in few weeks. At that time it will be the best. Eithe= call or you visiting Seattle. Still I think that before that =e could prepare something. 4) <=pan style=lont-size:11.0ptfont-family:"Calibri","sans-serif";color:41FD5Mels - let's talk. &nb=p; Fr=m: Jeffrey Epstein [mailto:jeevacation@gmail.com) Sent: Tues=ay, May 10, 2011 3:19 AM To: Boris Nikolic Subject: 1. norwegian friend 2 is=and trip, 3 bill inovative finace call 4 melz <=r>-- Th= information contained in this communication is confidential, may be at=orney-client privileged, may constitute inside information, and is inte=ded only for the use of the addressee. It is the property of Jeffrey=Epstein Unauthorized use, disclosure or copying of this communicati=n or any part thereof is strictly prohibited and may be unlawful. If yo= have received this communication in error, please notify us immediatel= by return e-mail or by e-mail to jeevacation@gmail.com <mailto:jeevacation@gmail.c=m> , and destroy this commun=cation and all copies thereof, including all attachments. copyright -al= rights reserved EFTA_R1_00093557 EFTA01777604
+
+[PDF](pdfs/mette/EFTA01777604.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01777604.pdf)
+
+---
+
+### 2011-05-10T03:01:00+00:00
+
+**From:** Jeffrey Epstein
+
+**To:** Boris Nikoli
+
+Subject: 
+
+To: Boris Nikolic I. norwegian friend 2 island trip, 3 bill inovative finace call 4 melz
+
+[PDF](pdfs/mette/EFTA01866879.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+10/EFTA01866879.pdf)
+
+---
+
+### 2009-05-13T22:17:25+00:00
+
+**From:** Gerry Casanova" <
+
+**To:** Jeffrey Epstein" <jeevacation@gmail.com>
+
+Subject: Fw: names of all UN Goodwill Ambassadors - FYI
+
+Date: Wed, 13 May 2009 17:29:49 To: < Subject: names of all UN Goodwill Ambassadors - FYI GOODWILL AMBASSADORS OF THE UNITED NATIONS SYSTEM Click on any of the agencies below to view a list of their Goodwill Ambassadors. Food and Agricultural Organization of the United Nations (FAO) <http://www.un.org/sg/mop/gwa.shtml#FAO#FAO> Joint United Nations Programmes on HIV/AIDS (UNAIDS) <http://www.un.org/sg/mop/gwa.shtml#UNAIDS#UNAIDS> United Nations Children's Fund (UNICEF) <http://www.un.org/sg/mop/gwa.shtml#UNICEF#UNICEF> United Nations Educational, Scientific and Cultural Organization (UNESCO) <http://www.un.org/sg/mop/gwa.shtml#UNESCO#UNESCO> United Nations Development Fund for Women (UNIFEM) <http://www.un.org/sg/mop/gwa.shtml#UNIFEM#UNIFEM> United Nations Development Programme (UNDP) <http://www.un.org/sg/mop/gwa.shtml#UNDP#UNDP> United Nations High Commissioner for Refugees (UNHCR) <http://www.un.org/sg/mop/gwa.shtml#UNHCR#UNHCR> United Nations Industrial Development Organization (UNIDO) <http://www.un.org/sg/mop/gwa.shtml#UNIDO#UNIDO> United Nations Office on Drugs and Crime (UNODC) <http://www.un.org/sg/mop/gwa.shtml#UNODC#UNODC> United Nations Population Fund (UNFPA) <http://www.un.org/sg/mop/gwa.shtml#UNFPA#UNFPA> United Nations World Food Programme (WFP) <http://www.un.org/sg/mop/gwa.shtml#WFP#WFP> World Health Organization (WHO) <http://www.un.org/sg/mop/gwa.shtml#WHO#WHO> Stop TB Partnership <http://www.un.org/sg/mop/gwa.shtml#TB#TB> Food and Agricultural Organization of the United Nations (FAO) <http://www.fao.org/wfd/ambas/amb/ambas_en.htm> FAO Ambassadors Programme 1. Magida Al Roumi (Lebanon) Singer 2. Roberto Baggio (Italy) Football Player 3. Dee Dee Bridgewater (USA) Jazz Singer EFTA00774846 4. Al Bano Carrisi (Italy) Singer 5. Beatrice Faumuina (New Zealand) Olympic Athlete/Discus 6. Debbie Ferguson (Bahamas) Olympic Gold Medalist/Sprinter 7. Carla Fracci (Italy) Ballet Dancer 8. Gilberto Gil (Brazil) Singer 9. RaA°1 GonzAilez (Spain) Football Player 10. The Italian Singers' Football Team (Italy) A team of famous Italian singers who play charity football matches. 11. Mory KantAO (Guinea) Singer 12. Ronan Keating (Ireland) Singer 13. Khaled (Algeria) Rai Singer 14. Gong Li (China) Actress 15. Gina Lollobrigida (Italy) Actress 16. Miriam Makeba (South Africa) Singer 17. ManAi (Mexico) Latin Rock Band 18. Rita Levi Montalcini (Italy) 1986 Nobel Prize for Medicine/Writer 19. Youssou N'Dour (Senegal) Singer 20. Noa (Israel) Singer 21. Justin Pasek (Ukraine) Former Miss Universe 22. Massimo Ranieri (Italy) Singer and Actor 23. Oumou Sangarko (Mali) Singer 24. Chucho ValdAiDs (Cuba) Pianist and Composer 25. Dionne Warwick (USA) Singer Coordinator: Mr. Sidaty Aidara, Chief of the World Food Day and Special Initiatives Branch sidaty.aidara@fao.org <mailto:sidaty.aidara@fao.org> Joint United Nations Programmes on HIV/AIDS (UNAIDS) <http://www.unaids.org/en/AboutUNAIDS/SpecialReps/default.asp> Special Representatives 1. Salman Ahmad (Pakistan) Rock Musician 2. Michael Ballack (Germany) Football Player 3. Jackie Chan (China) Actor and Martial Arts Expert 4. Serge Dumont (France) Businessman 5. Ratu Epeli Nailatikau (Fiji) Speaker of the House of Representatives 6. Rupert Everett (UK) Actor EFTA00774847 7. Mary Fisher (USA) Artist, Author and Speaker 8. Mero Kececioglu-Kylicas (Greece) President of "Greek Action for Africa" 9. HRH Princess Mathilde (Belgium) Advocate of children affected by and living with HIV 10. HRH Crown Princess Mette-Marit (Norway) Advocate for young people living with and affected by HIV 11. Her Serene Princess Stephanie (Monaco) President of "Fight AIDS Monaco" 12. William H. Roedy (UK) Businessman 13. Mechai Viravaidya (Thailand) Advocate of family planning and safe sex 14. Naomi Watts (UK/Australia) Actress 15. Professor Dr. Muhammad Yunus (Bangladesh) Banker and Economist 16. Miriam Yeung Chin Wah (China) Pop Singer Coordinator: Ms. Cheryl Bauerle, Team Leader, Advocacy and Campaigns bauerlec@unaids.org <mailto:bauerlec@unaids.org> United Nations Children's Fund (UNICEF) <http://www.unicef.org/people/people_ambassadors.html> International Ambassadors 1. Amitabh Bachchan (India) Actor 2. David Beckham (UK) Football Player 3. Berlin Philharmoniker (Germany) Orchestra 4. Roger Federer (Switzerland) Tennis Player 5. Lang Lang (China) Pianist 6. Ricky Martin (USA) Pop Singer 7. Shakira Mebarak (Colombia) Singer and Songwriter 8. Lord Richard Attenborough (UK) Actor, Producer and Director 9. Harry Belafonte (USA) Singer, Actor, Producer and Human Rights Activist 10. Jackie Chan (China) Actor and Martial Arts Expert 11. Judy Collins (USA) Singer/Songwriter 12. Mia Farrow (USA) Actress 13. Danny Glover (USA) Actor and Producer 14. Whoopi Goldberg (USA) Actress, Producer and Writer 15. AngAelique Kidjo (Benin) Singer and Songwriter 16. Johann Olav Koss (Norway) Olympic Gold Medal Winner/Speed Skater 17. Tetsuko Kuroyanagi (Japan) Actress, Television Personality and Author EFTA00774848 18. Femi Kuti (Nigeria) Singer and Musician 19. Leon Lai (China) Singer and Actor 20. Jessica Lange (USA) Actress 21. Sir Roger Moore (UK) Actor 22. Nana Mouskouri (Greece) Singer 23. Youssou N'Dour (Senegal) Performer and Band Leader 24. Vanessa Redgrave (UK) Actress 25. SebastiA£o Salgado (Brazil) Photojournalist 26. Susan Sarandon (USA) Actress 27. Vendela Thommessen (Sweden) Model and Actress 28. Maxim Vengerov (Siberia) Classical Musician/Violin Coordinators: Ms. Maria Zanca, Chief, Celebrity Relations (Geneva) mzanca@unicef.org <mailto:mzanca@unicef.org> Ms. Fran Silverberg, Senior Communications Assistant, Celebrity Relations and Special Events Section (New York) fsilverberg@unicef.org <mailto:fsilverberg@unicef.org> United Nations Educational, Scientific and Cultural Organization (UNESCO) <http://portal.unesco.orgien/ev.php-URL_ID3&URL_DO=DO_TOPIC&URL_SECTION.html> Goodwill Ambassadors 1. Ara Abramian (Russia) International Businessman/Civil Society Supporter 2. JosAO Antonio Abreu (Venezuela) Musician and Composer 3. Valdas Adamkus (Lithuania) President of Lithuania 4. Mehriban Aliyeva (Azerbaijan) First Lady of Azerbaijan 5. Alicia Alonso (Cuba) Ballerina and Choreographer 6. Patrick Baudry (France) Astronaut/Youth Issues 7. Pierre BergAO (France) Entrepreneur/Human Rights and HIV/AIDS Activist 8. Montserrat CaballArb (Spain) Opera Singer/Humanitarian and Children's Issues 9. Pierre Cardin (France) International Businessman/Human Rights Activist 10. Claudia Cardinale (Italy) Actress/Women's Rights Advocate 11. Marin Constantin (Romania) Composer and Conductor/Cultural Issues 12. Cheick Modibo Diarra (Mali) Scientist/Science Education Advocate 13. Miguel Angel Estrella (Argentina) Classical Pianist 14. VigdAs FinnbogadA3ttir (Iceland) Former President of Iceland/Supports Linguistic Diversity 15. Ivry Gitlis (Israel) Violinist and Composer EFTA00774849 16. Bahia Hariri (Lebanon) Parliamentarian/Women's Rights Advocate 17. H. E. Sheikh Ghassan I. Shaker (Saudi Arabia) Diplomat and Businessman/Human Rights Issues 18. H. R. H. Grand Duchess Maria Teresa of Luxembourg (Luxembourg) Children's Rights/Education for Women and Girls 19. H. R. H. Princess Firyal (Jordan) Arts Patron/Humanitarian Issues 20. H. R. H. the Princess of Hanover (Principality of Monaco) Women, Children and Educational Issues 21. H. R. H. Princess Lalla Meryem of Morocco (Morocco) Women and Children's Rights Advocate 22. H. R. H. Princess Maha Chakri Sirindhorn of Thailand (Thailand) Development Projects and Children's Rights 23. Ikuo Hirayama (Japan) Painter/Cultural Heritage Preservation 24. Jean Michel Jarre (France) Electro-Acoustic Musician/Cultural Heritage Preservation/Youth Issues 25. Omer ZAIllfA4 Livaneli (Turkey) Artist/Uses Music to Promote Multiculturalism and Tolerance 26. Nelson Mandela (South Africa) Nobel Peace Prize 1993 and former South African President 27. Lily Marinho (Brazil) Arts Patron/Street Children Advocate 28. Rigoberta Menchu TA°m (Guatemala) Nobel Peace Prize 1992/Indigenous Peoples Advocate 29. KitAn MuAtoz (Spain) Scientist and Explorer/Aboriginal Peoples Advocate 30. Ute-Henriette Ohoven (Germany) Humanitarian Advocate/Education 31. Cristina Owen-Jones (Italy) HIV/AIDS Prevention/Education 32. Kim Phuc Phan Thi (Vietnam) Peace Activist 33. Susana Rinaldi (Argentina) Tango Singer and Actress/Artists' Rights 34. Madanjeet Singh (India) Diplomat, Artist and Painter 35. Wole Soyinka (Nigeria) Nobel Prize for Literature 1986 and Writer/Human Rights Advocate 36. Zurab Tsereteli (Georgia) Artist and Architect/Cultural Projects and Children 37. Giancarlo Elia Valori (Italy) Economist and Businessman 38. Marianna Vardinoyannis (Greece) Leading Figure in Greek Social and Artistic Life/ Children's and Family Rights Advocate 39. MilA° Villela (Brazil) Leading Figure in Volunteer Movements and Youth/Education Advocate 40. Julio Werthein (Argentina) Banker and Industrialist/Arts Patron and Environmental Advocate Coordinator: Ms. Basma Irsheid, Chief of Programme, UNESCO Celebrity Advocates B.Irsheid@unesco.org <mailto:B.I rsheid@unesco.org> United Nations Development Fund for Women (UNIFEM) <http://www.unifemusa.org/drupal/? q=goodwillambas> EFTA00774850 Goodwill Ambassadors 1. Nicole Kidman (USA and Australia) Actress 2. Hon. Mrs. Phoebe Asiyo (Kenya) Advocate for African women 3. HRH Princess Basma bint Talal (Jordan) Advocate for Middle East women Coordinator: Ms. Joan Libby-Hawk, Public Affairs Specialist joan.libby-hawk@unifem.org <mailto:joan.libby-hawk@unifem.org> United Nations Development Programme (UNDP) <http://www.undp.org/goodwill/> Goodwill Ambassador 1. Ronaldo (Brazil) Football Player 2. ZinAedine Zidane (France) Football Player 3. Didier Drogba (CA'te d'Ivoire) Football Player 4. Maria Sharapova (Russia) Tennis Player 5. Misako Konno (Japan) Television Personality and Actress 6. Crown Prince Haakon Magnus of Norway (Norway) HIV/AIDS Advocate for the MDGs Coordinator: Ms. Carmen Higa, Communications Assistant carmen.higa@undp.org <mailto:carmen.higa@undp.org> United Nations High Commissioner for Refugees (UNHCR) <http://www.unhcr.org/cgi- bin/texis/vtx/help?id=3f8d07664> Goodwill Ambassadors 1. Giorgio Armani (Italy) Designer/Businessman 2. Julien Clerc (France) Singer and Songwriter 3. Adel Imam (Egypt) Actor 4. Barbara Hendricks (American-Swedish) Classical Singer 5. Angelina Jolie (USA) Actress 6. George Dalaras (Greece) Musician 7. Osvaldo Laport (Uruguay) Actor Coordinator: Ms. Claudia Gisiger-Gonzales, Senior External Affairs Officer, Goodwill Ambassadors and Special Events Gisiger@unhcr.org <mailto:Gisiger@unhcr.org> United Nations Industrial Development Organization (UNIDO) <http://www.unido.org> Goodwill Ambassadors 1. Peter Sutherland (Ireland) International Businessman/Chairman of BP and Goldman Sachs International 2. Mansour Cama (Senegal) Businessman/Founding member of the foundation of Senegal's National EFTA00774851 Confederation of Employers 3. Reinosuke Hara (Japan) Businessman/Technology and Engineering Coordinator: Mr. George Assaf, Chief, Advocacy and Communications Unit and UNIDO Spokesperson G.Assaf@unido.org <mailto:G.Assaf@unido.org> United Nations Office on Drugs and Crime (UNODC) <http://www.unodc.org/unodc/goodwillambassadors.html> Goodwill Ambassadors 1. Julia Ormond (U.K.) Actress and Human Rights Activist 2. Igor Cassina (Italy) Olympic Gold Medalist/Gymnast 3. Alessandro Scotti (Italy) Photographer Coordinators: Ms. Norha Restrepo, Public Information Officer (Vienna) norha.restrepo@unodc.org <mailto:norha.restrepo@unodc.org> Ms. Simone Monasebian, Chief of New York Office monasebian@un.org <mailto:monasebian@un.org> United Nations Population Fund (UNFPA) <http://www.unfpa.org/ambassadors/> Goodwill Ambassadors 1. Yuko Arimori, Olympic medallist (Japan). Appointment: 23 January 2002. 2. Mary Banotti, Member of European Parliament, UN Population Fund Goodwill Ambassador and Face to Face Campaign Spokesperson for Ireland. Appointment: 11 October 1999 3. Lara Dutta, Miss Universe 2000, model, UN Population Fund Goodwill Ambassador for India. Appointment: 15 February 2001 4. Catarina Furtado, actress, UN Population Fund Goodwill Ambassador for Portugal. Appointment: June 2000. 5. Geri Halliwell, singer, entertainment personality, UN Population Fund Goodwill Ambassador and Face to Face Campaign Spokesperson for the United Kingdom (Special Interest: Adolescents). Appointment: 20 October 1998 6. Mpule K. Kwelagobe, Miss Universe 1999, (Botswana) (Special Interest: HIV/AIDS). Appointment: 8 February 2000 7. Goedele Liekens, media personality, UN Population Fund Goodwill Ambassador for Belgium. Appointment: 1999. 8. Bertrand Piccard, scientist-adventurer, psychiatrist and aeronaut, UN Population Fund Goodwill Ambassador for Switzerland. Appointment: 16 November 1999 9. Chea Samnang, actor/doctor (Cambodia). Appointment: 20 October 2000. 10. Princess Basma Sint Talal, global advocate for women and children (Jordan). Appointment: 11 December 2001 11. Ashi Sangay Choden Wangchuck, Queen of Bhutan. Appointment: 1999 Coordinator: Mr. Abubakar Dungus, Media Adviser/UNFPA Spokesman dungus@unfpa.org <mailto:dungus@unfpa.org> EFTA00774852 United Nations World Food Programme (WFP) <http://www.wfp.org/english/?n> Goodwill Ambassador 1. George McGovern (USA) Former U.S. Senator and instrumental in the foundation of WFP in 1963Special Ambassador for School Feeding 2. HRH Princess Maha Chakri Sirindhorn (Thailand) Executive Vice-President of Thai Red Cross. Ambassadors against Hunger: 1. Cesaria Evora (Cape Verde) Singer 2. Paul Tergat (Kenya) Marathon Runner 3. Maria Grazia Cucinotta (Italy) Actress 4. Mahmoud Yassin (Egypt) Actor 5. KakAi (Brazil) Football Player 6. Ronaldinho (Brazil) Football Player 7. Drew Barrymore (USA) Actress and Producer 8. Howard Buffett (USA) Philanthropist and Environmentalist Coordinator: Mr. Lionello Boscardi, Coordinator, Celebrity Relations & Special Events lionello.boscardi@wfp.org <mailto:l ionello.boscardi@wfp.org> World Health Organization (WHO) <http://www.who.int/goodwill_ambassadors/en/> Goodwill Ambassadors 1. Liya Kebede (Ethiopia) Maternal, Newborn and Child Health/Fashion Model 2. Yohei Sasakawa (Japan) Leprosy Elimination/Chairman of The Nippon Foundation 3. Vienna Philharmonic Orchestra (Austria) Public Awareness on Health Issues Coordinator: Christine McNab, Acting Director, Communications Department mcnabc@who.int <mailto:mcnabc@who.int> Stop TB Partnership <http://www.stoptb.org> Goodwill Ambassador 1. Ms. Anna Cataldi (Italian) Journalist and Writer/Public Health Issues 2. Luis Figo (Portugal) Football Player Coordinator: Mr. Vittorio Cammarota, celebrities and Special Events Officer cammarotav@who.int <mailto:cammarotav@who.int> Total: 160 Goodwill Ambassadors Updated: March 2008 EFTA00774853 Gerry Casanova 404 East 66th Street - 7R New York, NY 10065 Office: Mobile: EFTA00774854
+
+[PDF](pdfs/mette/EFTA00774846.pdf) [Source](https://www.justice.gov/epstein/files/DataSet+9/EFTA00774846.pdf)
 
 ---
 

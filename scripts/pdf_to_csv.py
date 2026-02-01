@@ -97,6 +97,7 @@ for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
             #Add path to be used in md
             email["Path"] = pdf_file
             email["FileName"] = os.path.basename(pdf_file)
+            print("Parsed ", email["Path"])
 
             #ungodly section for trying to remove in-line mail replies and signatures:
             if email["Content"]:
