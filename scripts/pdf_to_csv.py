@@ -93,6 +93,45 @@ emails = []
 total_emails = 0
 failed = []
 
+def remove_trailing_text(full_email):
+    # epstein has a custom signature/disclaimer we remove for readability
+    disclaimer_index = full_email.lower().find("the information contained in this")
+    if disclaimer_index != -1:
+        full_email = full_email[:disclaimer_index]
+        # The disclaimer sometimes begins with please note, so remove this as well.
+        please_note_index = full_email.lower().find("please note")
+        if please_note_index != -1:
+            full_email = full_email[:please_note_index]
+
+    # Remove after and including "Sent from my IPhone/IPad/Windows Phone"
+    sent_from_index = full_email.lower().find("sent from my ")
+    if sent_from_index != -1:
+        full_email = full_email[:sent_from_index]
+
+    # Remove after and including "Sent fra min Iphone/IPad/Windows Phone"
+    sent_from_index = full_email.lower().find("sendt fra min ")
+    if sent_from_index != -1:
+        full_email = full_email[:sent_from_index]
+
+    # This is a list of regex patterns we want to find and then
+    # remove everything including and after the firs groups match
+    reply_patterns = []
+
+    # Start of reply-section of mails sent in norwegian:
+    reply_patterns.append(r"Den.*?kl\..*?skrev")
+
+    # Start of reply-section of mails in english
+    reply_patterns.append(r"\bOn\s+.*?\bwrote:?\b")
+
+    for p in reply_patterns:
+        match = re.search(p, full_email, re.IGNORECASE)
+        if match:
+            full_email = full_email[:match.span(0)[0]]
+
+    # Remove all those stars in epsteins signature
+    full_email = full_email.replace("*", "")
+    return full_email
+
 for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
     with pdfplumber.open(pdf_file) as pdf:
 
@@ -100,55 +139,26 @@ for pdf_file in Path(PDF_DIR).rglob("*.pdf"):
 
         ## I assume that the first mail message exists within the first two pages of the pdf
         full_text = "\n".join(page.extract_text() or "" for page in pdf.pages[:2])
-
-        # For transparancy, add a disclaimer that there are removed pages here:
-        if len(pdf.pages) > 2:
-            full_text += "\n ** Pages has been removed, see source for all pages **"
-
         email = parse_first_email(full_text)
 
         if not email:
             failed.append(f"{pdf_file}")
             print(f"Failed to parse {pdf_file}");
-        else:
-            #Add path to be used in md
-            email["Path"] = pdf_file
-            email["FileName"] = os.path.basename(pdf_file)
+            continue
 
-            # ungodly section for trying to remove in-line mail replies and signatures:
-            if email["Content"]:
-                # Remove all those stars in epsteins signature 
-                email["Content"].replace("*", "")
-                # Lets assume that kronprinsessen is the only norwegian her
-                if email["From"].lower().find("kronprinsessen") != -1 or email["From"].lower().find("h.k.h.") != -1:
-                    # Find the start of the "reply-section" of the mail
-                    reply_regex = r"Den.*?kl\..*?skrev"
+        #Add path to be used in md
+        email["Path"] = pdf_file
+        email["FileName"] = os.path.basename(pdf_file)
 
-                # epstein is often the other one, he has a custom signature/disclaimer
-                else:
-                    disclaimer_index = email["Content"].lower().find("the information contained in this")
-                    if disclaimer_index != -1:
-                        email["Content"] = email["Content"][:disclaimer_index]
+        if email["Content"]:
+            email["Content"] = remove_trailing_text(email["Content"])
 
-                        # The disclaimer sometimes begins with please note, so remove this as well.
-                        please_note_index = email["Content"].lower().find("please note")
-                        if please_note_index != -1:
-                            email["Content"] = email["Content"][:please_note_index]
+            # For transparancy, add a disclaimer that there are removed pages here:
+            if len(pdf.pages) > 2:
+                email["Content"] += "\n ** Pages has been removed, see source for all pages **"
 
-                    reply_regex = r"\bOn\s+.*?\bwrote:?\b"
-
-                if reply_regex:
-                    match = re.search(reply_regex, email["Content"], re.IGNORECASE)
-                    if match:
-                        email["Content"] = email["Content"][:match.span(0)[0]]
-                
-                # Remove after and including "Sent from my IPhone/IPad"
-                iphone_index= email["Content"].lower().find("sent from my i")
-                if iphone_index!= -1:
-                    email["Content"] = email["Content"][:iphone_index]
-
-            print(f"Successfully parsed {pdf_file} ");
-            emails.append(email)
+        print(f"Successfully parsed {pdf_file} ");
+        emails.append(email)
 
     ## Sort newest first:
     sorted_emails = sorted(emails, key=lambda email: email["Sent"], reverse=True);
