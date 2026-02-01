@@ -1,6 +1,5 @@
 #!/bin/python3
 import csv
-from pathlib import Path
 import os
 
 CSV_FILE = os.environ["CSV_FILE"]
@@ -43,14 +42,27 @@ with open(MD_FILE, "w", encoding="utf-8") as f:
 
     for r in rows:
         f.write(f"### {r['Sent']}\n\n")
-        f.write(f"**From:** {r['From']}\n\n")
-        f.write(f"**To:** {r['To']}\n\n")
-        (f.write(f"**Subject**: {r['Subject']}\n\n"),)
-        f.write(f"{r['Content']}\n\n")
-        f.write(f"[PDF]({r['Path']}) ")
+        f.write("<table>\n")
+
+        f.write("<tr>\n")
+        f.write(f'<td align="left"> From: {r["From"]} </td>\n')
+        f.write(f'<td align="right"> To: {r["To"]} </td>\n')
+        f.write("</tr>\n")
+
+        f.write("<tr>\n")
+        f.write(f'<td colspan="2">Subject: {r["Subject"]}</td>\n')
+        f.write("</tr>\n")
+
+        f.write("<tr>\n")
+        f.write(f'<td colspan="2">{r["Content"]}</td>\n')
+        f.write("</tr>\n")
+
+        f.write("<tr>\n")
+        f.write(f'<td align="left"><a href=../{r["Path"]}> PDF </a></td>\n')
         f.write(
-            f"[Source](https://www.justice.gov/epstein/files/{find_data_set(r['FileName'])}/{r['FileName']})\n\n"
+            f'<td align="left"><a href=https://www.justice.gov/epstein/files/{find_data_set(r["FileName"])}/{r["FileName"]}> Source</a></td>\n'
         )
-        f.write("---\n\n")
+        f.write("</tr>\n")
+        f.write("</table>\n\n")
 
 print(f"Wrote {len(rows)} messages to {MD_FILE}")
